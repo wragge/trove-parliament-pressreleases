@@ -23,7 +23,9 @@ You can view the [results of this query on Trove](http://trove.nla.gov.au/articl
 Here's the results:
 
 * Metadata for each record saved as a [a CSV file](results-20171202.csv).
-* Browse the full text of each article in the [texts](texts/) folder. Metadata is included in each file as YAML front matter.
+* Browse the full text of articles in the [texts](texts/) folder. Metadata is included in each file as YAML front matter.
+
+For convenience, I've added a [zip file containing the CSV and text files](refugees-example-20171202.zip).
 
 ## Some warnings
 
