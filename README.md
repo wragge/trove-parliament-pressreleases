@@ -31,6 +31,8 @@ There are multiple versions of some press releases. For example, sometimes the o
 
 It looks like the earlier documents have been OCRd and the results are quite variable. If you follow the `source_url` link you should be able to view a PDF version for comparison.
 
+It also seems that some documents only have a PDF version and not any OCRd text. These documents will be ignored by the `save_texts()` function, so you might end up with fewer texts than records.
+
 The copyright statement attached to each record in Trove reads:
 
 > Copyright remains with the copyright holder. Contact the Australian Copyright Council for further information on your rights and responsibilities.
@@ -90,7 +92,13 @@ harvest.harvest()
 
 ### Using your own search query
 
-By default `harvest()` will launch the
+By default `harvest()` will launch the example search for terms relating to refugees. You can feed in your own query as a parameter to `harvest()` function.
+``` python
+import harvest
+harvest.harvest('cats OR dogs')
+```
+
+Note that if you're doing multiple searches and you want to keep the results separate, you might want to change the database name in the `credentials.py` file.
 
 ### Saving as CSV
 
@@ -107,6 +115,19 @@ import harvest
 harvest.save_csv()
 ```
 
-### Save full text versions of all the documents
+### Save full text versions of documents
 
-Once your harvest is complete
+Once your harvest is complete, you can download the texts of all the available documents.
+
+* Make sure your virtual environment is activated and your inside the cloned repository folder.
+* Type `python` to start up Python, the command prompt will change to `>>>`.
+``` shell
+python
+```
+* Import the `harvest.py` module and then run the `save_texts()` function.
+``` python
+import harvest
+harvest.save_csv()
+```
+
+Note that this function will only download documents that have OCRd text in ParlInfo. So you might notice a difference between the number of records in your dataset and the number of texts downloaded.
