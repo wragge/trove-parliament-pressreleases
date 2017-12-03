@@ -1,0 +1,93 @@
+---
+title: "Address to the Liberal Party of Australia - New South Wales Division."
+date: "2009-11-14"
+creators:
+  - "Turnbull, Malcolm"
+  - "Liberal Party of Australia"
+source: "LEADER OF THE OPPOSITION"
+subjects:
+  - "People smuggling"
+  - "Liberal Nationals Coalition policy"
+  - "Refugee policy"
+  - "Refugees"
+  - "ALP policy"
+trove_url: http://trove.nla.gov.au/version/211331225
+source_url: http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/R48V6%22
+---
+
+ Sat, 14th November 2009   LEADER OF THE OPPOSITION ADDRESS TO THE LIBERAL PARTY OF  AUSTRALIA - NEW SOUTH WALES DIVISION 
+
+ The Hon Malcolm Turnbull MP   Leader of the Opposition 
+
+ E&OE  
+
+ Thank you very much.  
+
+ Well, Connie, thank you very much for that very warm and characteristically eloquent  introduction. You are very generous.  
+
+ It is wonderful to be here with so many of my state and federal parliamentary  colleagues, with Nick Campbell and the State Executive, and here with State Council  delegates. As Val said as she accepted her award very modestly and perhaps not  entirely accurately she said that everyone here has done as much work as her, but the  reality is the Liberal Party stands on your shoulders. Without your work, without the  work of Val Coy and thousands like her, we would not be able to achieve what we  have done. And the reality is since our party’s formation, most of that period since our  party’s formation has seen Australian governed and governed well by Liberal Party  governments. And it is due to your hard work we have been able to do that.  
+
+ Now I want to start where Connie left off and talk today about one of the most crucial  issues in national politics at any time, in any season, but particularly crucial today,  and that is the issue of border protection. There is no obligation, no responsibility of a  national government that is more important that safeguarding our borders. National  security is a vital obligation of every government; whether it is Labor or Liberal, it  doesn’t matter. Our borders must be secure. Kevin Rudd unpicked the border  protection policies that had been bequeathed to him by the Howard Government,  policies that had seen the number of boats and the number of unauthorised arrivals of  asylum seekers dwindle to in some years zero and in other years to very small  numbers. The policies of the previous government had worked and I note that we have  here among us today Australia’s longest serving Immigration Minister, the  Honourable Philip Ruddock.  
+
+ Now an Australian government, in pursuing that policy of border protection, seeks to  achieve two objectives. The first is to ensure that so far as possible the people  smuggling trade is stopped; there are no unauthorised arrivals of asylum seekers. We  have a generous humanitarian program. Our ministers, Philip during his time, our  officials go out into the refugee camps of the world where there are thousands,  millions of people without any hope of returning to their own homeland and we find  among their ranks people that we can bring to Australia. We have, apart from the  United States, the most generous refugee resettlement program in the world. And if  you want to check that, that is the current figures from the United Nations High  Commission on Refugees. It is not an Australian Government figures. That is the UN  speaking. So there is no question about our generosity.  
+
+ But the critical point is that we decide which refugees are going to come in. We  decide, because we are a sovereign nation, who is going to come to Australia. And as  John Howard said, and the manner in which they come. And every Australian prime  minister and every person seeking to be prime minister, such as myself as the Leader  of the Opposition, should say that because that is what Australians expect. So we seek  to achieve that objective.  
+
+ The other objective we also seek to achieve is to treat refugees compassionately and  fairly in accordance with our obligations under the UN Convention. Now those two  goals - sometimes people would say there is a tension between the two - but we were  able to achieve both during our time in government and when we left government  Kevin Rudd inherited policies, a collection of policies which had stopped the boats.  Now he unpicked those in August last year and when he did, he said his changes  would make no difference to the rate of arrivals. That was his claim. He said the fact  that there had been no boats was a mere coincidence that had nothing to do with the  Australian Government’s policies.  
+
+ So he unpicked those policies. He was warned that this would be telegraphed as a  softening of our border protection around the world. He was warned not just by the  Opposition. He was warned by the Australian Federal Police. He was warned by the  Government of Indonesia. He was warned by the International Organisation for  Migration that is so intimately involved with refugee administration and processing  and assistance in our region, especially in Indonesia. He was warned by all those  people but he said, ‘no you’re all wrong. I, the great Kevin Rudd, am right and it will  make no difference’. And then the boats started to come. And he said, ‘oh it’s just the  season. It’s a coincidence again’.  
+
+ My friends, barely a year later, we now have nearly fifty boats and about 2200  unauthorised arrivals. Julia Gillard used to say on the rare occasions a boat did arrive  when she was Shadow Immigration Minister, she used to say “another boat, another  policy failure”. Well there have been 48 policy failures since August 2008, and every  single one of them the direct consequence of Kevin Rudd’s policies.  
+
+ Now Kevin Rudd will say that this has got nothing to do with what is called the pull  factor, the domestic policies in Australia that make us an attractive destination. He’ll  say it’s got nothing to do with that; it’s all the push factor, difficulties in other parts of  the world. Well, again, let me refer you to the United Nations High Commission on  Refugees and their own statistics. There is a tragically enormous number of refugees  in the world, around 11 million. The push factors are always enormous. Some years  they may be a little more enormous than others; sometimes a little less. But the push  factors are gigantic. The reality is that the number of refugees, statistically according  to the UN, has declined somewhat over the last year. But what has changed is not the  push factor but the pull factor, the policies of the Australian Government.  
+
+ If you read The Australian newspaper today, there is an oped written by the Sri  Lankan Ambassador to the United Nations who says quite bluntly the surge in  refugees is because of the attractiveness of Australia as a destination. In the Sydney  Morning Herald, there is an oped by Tanveer Ahmed, who is an Australian  psychiatrist, writes on political and other matters regularly, and he reported on just 
+
+ returning from Pakistan where had met with people, taxi drivers, people on the street  who had an intimate and current knowledge of the refugee policies and immigration  policies of a range of desirable destinations - Australia, Canada, New Zealand and  others. So we shouldn’t imagine for one minute that changes in Australian policy are  not immediately telegraphed to the rest of the world. Of course they are. Anyone who  can afford $10,000 or $15,000 to buy a ticket on a people smuggler’s boat, to buy a  seat on one of those boats, often unseaworthy and dangerous, any person in that  position is certainly able to access an internet cafÃ© and find out what the latest news is  and what the latest state of affairs is in terms of the domestic policies of countries to  which they might want to travel and seek asylum. So this surge - let us be under no  mistake - this surge is a direct consequence of Kevin Rudd recklessly unpicking the  policies of the previous government that had worked.  
+
+ But then what are we to make of the extraordinary failure in policy over the Oceanic  Viking? Surely this is one of the most humiliating episodes in the history of  Australia’s border protection policy.  
+
+ Here we have an Australian vessel, an Australian Government vessel whose job is to  protect our waters right around our coastline and does service in the south and the  north and the Indian Ocean and the Coral Sea, all around the country. It has been  floating off the coast of Indonesia for four weeks with, until very recently, 78 asylum  seekers who had refused to disembark. Twenty-two have now disembarked because  and for no other reason than that they have been offered a fast and expedited passage  to Australia. Kevin Rudd said they were not offered a special deal. It is plain enough  that they were. Of course they were. They were coaxed off the boat with the promise  of a quick resettlement in Australia. A quicker process, a more certain process than if  they had arrived in Christmas Island in the first place.  
+
+ What are we to say of the judgement of a prime minister who apparently struck a  bargain with the Indonesian President to take the boat to Indonesia and disembark the  passengers there but apparently had not turned his mind for one instant as to how he  was going to persuade them to leave the boat? What does it say about the competence  of a prime minister who would do that and what does it say about his integrity when  he repeatedly states that no special deals have been offered when we have the written  evidence on Australian Government letterhead no less, confirmed by the Indonesian  authorities, that a fast track process had been offered which will see them off the boat  and, within a few weeks, onto an aeroplane bound for Australia.  
+
+ Mr Rudd has got to come into the Parliament on Monday and explain exactly the  nature of the promises he has made and is still making to the asylum seekers on the  Oceanic Viking. We have got to know precisely what those special deals are, and he  has got tell us too what this sorry episode has cost the taxpayer, not just in dollars but  in reputation. What is the signal he has sent to the world with this episode? He has put  a signal up, a message up in letters a mile high - ‘Australia is a soft touch, come on  over, Kevin will fix you up’. He has rolled out the Rudd carpet with a vengeance. And  no, I haven’t developed a New Zealand accent.  
+
+ Now we need to have a new signal. The Government should - but they won’t - they  should recognise their policy has failed. They should recognise that this surge is their 
+
+ doing. Everybody says it is except for Kevin Rudd and his Immigration Minister.  Everybody - the Indonesians, the Sri Lankans, the AFP, the IOM. There is nobody,  not even the media take his claim that his failure in policy is not the cause of the surge  seriously.  
+
+ Now what we have done to set an example, a constructive alternative, is to restate  what every Australian knows, which is that the Coalition is tough and strong on  border protection. We stopped the boats in government and we will stop them again.  Now the only way to deter the people smugglers is to send the strongest possible  signal that Australia is not a soft touch.  
+
+ Let us all clearly and thoughtfully reflect on what we are dealing with here. People  smugglers are criminals of the worst sort. Many of them are also drug traffickers and  have even worse criminal affiliations, but they are criminals in a business. And they  are seeking to procure 10,000, 15,000 US dollars in return for a seat on a boat. So  what are they offering their would-be customer? They are offering them - at the  moment - the near certainty of permanent residency in Australia. That is their  product.  
+
+ Now the best way for us to undermine their business, and by undermining their  business reduce the flow of boats and of unauthorised arrivals, is to reduce the  certainty of the immigration outcome that they are able to offer. And that is why  yesterday we restated some core principles. This is not a new policy; these are  principles that have always been part of our policy. Firstly, we said we will once again  secure our borders. Our aim, I said yesterday, is to stamp out people smuggling,  effectively deter unauthorised arrivals, while at the same time treating refugees  compassionately in accordance with our international obligations.  
+
+ Secondly, we restated our commitment to ensure that unauthorised arrivals seeking  asylum are intercepted and processed offshore at Christmas Island, not on the  Australian mainland as Mr Rudd is plainly and openly preparing to do.  
+
+ Thirdly, we will introduce a non-permanent visa for asylum seekers who arrive  without authorisation. Those who arrive without authorisation will be granted this safe  haven visa rather than Labor’s permanent residency. It will be reassessed after a  specific period not exceeding three years and if they are found to be in need of  continued protection, then they will be eligible for permanent residency. If they are  found not to be in need of continuing protection, they will be returned to their country  of origin.  
+
+ And finally, fourthly, I said that a Turnbull Government will maintain Australia’s  substantial humanitarian program for refugees who come to Australia through the  legitimate processes, and that intake will always favour those most in need.  
+
+ I want now just to deal with some of the criticisms that have been made of this  announcement. It has been said that this form of safe haven visa is unjust. Let us be  quite clear about this. Our obligations under the UN Convention are to provide  protection for refugees who have a legitimate fear of persecution in their own country.  If that fear of persecution no longer exists because, as happens often and thank 
+
+ heavens it does, peace is restored in their home country, then they are entitled to be  repatriated.  
+
+ If I just may put some statistics around this for you to reflect on, over the last ten  years there have been millions of refugees who have found what are called durable  solutions, which means they have ceased to be refugees in one form or another. And  the two forms of durable solution are repatriation - going home to their own country  because peace and order has been restored - or resettlement in another country such  as Australia or Canada or New Zealand or the United Kingdom or America.  Resettlement as a percentage of the total number of durable solutions is less than one  per cent. So the overwhelming objective of refugee policy globally must be  repatriation, restoring peace in countries that have been tearing themselves apart so  people can go home.  
+
+ Now Afghanistan is a very tough environment at the moment. But thanks to our  involvement and that of our allies, it is a much better environment than it was. Not so  long ago there were six and a half million Afghans, refugees living outside of their  country. There is now still a horrifying large number - 2.8 million - but it is  obviously substantially less than what it was. So the objective always must be  repatriation. The ability to deal with the scale of the refugee problem, 10, 11 million  refugees around the world, and some figures will put it at higher than that if you  include internally displaced people, the ability to deal with that through resettlement is  simply not realistic, it’s not real, it’s not possible.  
+
+ The key focus always must be on repatriation. So there is nothing unjust or unfair or  unreasonable about the policy we have proposed. And it is of course very similar to  the temporary protection visas that were a key part of the previous government’s  package of policies that worked.  
+
+ But if Kevin Rudd doesn’t like what we have proposed, what we have set up, if he  doesn’t appreciate the principle that we have established, I ask him this - what is your  answer? And all we get are words, words, words and no substance. As the Oceanic  Viking catastrophe started to unravel last week the Prime Minister went into a spin  mode that was completely frenetic. He did 14 radio interviews in 36 hours and had  nothing to say in any of them. And then at the end of the week he gave a completely  loopy speech about climate change at the Lowy Institute that embarrassed even his  most hard-bitten supporters in the media.  
+
+ The fact is his policy has failed and he is not prepared to acknowledge that it has  failed. Let us be quite clear about this. What is the object of the policy? No boats.  That is the object of the policy. What we have got from Mr Rudd is nearly 50 boats  since he changed it. It is a surge. It is a surge he has caused, and he has to address it.  And the Oceanic Viking episode, this sorry and humiliating episode is just a small  part, a small example in an overall massive failure of border protection policies  
+
+ Australians will have different views about policy outcomes in different areas of  policy. People have different views about education, different views about health.  Everyone will have a different view about how the tax system should be designed. But  nobody believes that our borders should be anything other than secure. Nobody 
+
+ seriously wants to open our borders and have a flood of unauthorised arrivals. And  remember it is not a question of whether these unauthorised arrivals are or are not  bona fide refugees. We could assume, for the sake of argument, that every single one  of them was a bona fide refugee entitled to protection. But there are at least 11 million  of them in the world. And if we were to say our borders are completely porous, we  will provide no disincentive, will make no attempt to deter people smuggling or  unauthorised arrivals, what is 2000 arrivals or more in the last 12 months could easily  become four or six or eight in the years ahead.  
+
+ Australia cannot possibly be a soft touch on border protection. That is where Kevin  Rudd has left us and I promise you, my friends, fellow Liberals, when we return to  government Australians will know our borders will be secure and once again the boats  will be stopped.  
+
+ Thank you very much.   
+

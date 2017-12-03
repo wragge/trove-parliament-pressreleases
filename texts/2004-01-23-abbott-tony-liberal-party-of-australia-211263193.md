@@ -1,0 +1,106 @@
+---
+title: "The moral case for the Howard Government: notes for Young Liberal speech."
+date: "2004-01-23"
+creators:
+  - "Abbott, Tony"
+  - "Liberal Party of Australia"
+source: "MINISTER FOR HEALTH AND AGEING"
+subjects:
+  - "Government performance"
+  - "Liberal Nationals Coalition"
+  - "Political ethics"
+  - "Political leadership"
+  - "HOWARD, John, (former PM)"
+  - "Children overboard affair"
+  - "Iraq War"
+  - "KITNEY, Geoff"
+  - "Work for dole programs"
+  - "Refugees"
+trove_url: http://trove.nla.gov.au/version/211263193
+source_url: http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/PVGB6%22
+---
+
+ Speech
+
+ The Hon Tony Abbott MHR Minister for Health and Ageing 
+
+ 
+
+ 23 January 2004
+
+ *CHECK AGAINST DELIVERY*
+
+ NOTES FOR YOUNG LIBERAL SPEECH 23/1/04
+
+ THE MORAL CASE FOR THE HOWARD GOVERNMENT
+
+ One of the most dramatic incidents in Russell Crowe’s recent film, Master and Commander - the Far Side of the  World, involves a choice between saving a life and saving the ship. Crowe hacks away the wreckage of a fallen mast to  which one of his sailors is clinging because the alternative to losing a man overboard is losing the entire ship. There’s  no sense in the film that Crowe was choosing his life over the sailor’s. Rather, he was making the bitter but necessary  decision to put the lives of the ship’s company ahead of the lives of any of its crew. 
+
+ The tension between a leader’s simultaneous but different responsibilities to corporate and individual interests is  further explored when the Commander’s friend requires medical treatment only possible on land just as the frigate’s  quarry is at last in sight. This time, there is no unavoidable, either/or choice, so Crowe temporarily abandons the  pursuit to save his friend. Again, there’s no sense that Crowe has put his friend before his country. Rather, he has an  instinctive yet conscientious appreciation of the circumstances in which an individual’s interests should come first. 
+
+ The film is a fine exploration of the complexities of command. It’s been widely and justly reviewed as cinema at its  best. The film illustrates how traits which might be heroic virtue in an individual can be self-indulgent moral posturing  in a leader. The Commander is not just an effective and successful leader but a good and honourable one too. No doubt  journalists, academics and activists attended the film and barracked for Crowe in similar proportion to the rest of the  population. But if Crowe had played an Australian prime minister handling contemporary challenges in much the same  way, it’s all-but-certain the moral guardians would have damned him for having blood on his hands, sacrificing another  to save himself and looking after his influential mate rather than everyone else. 
+
+ If it’s possible to appreciate the strong moral case for Russell Crowe’s Captain Jack Aubrey, why not the moral case  for the Howard Government? If it’s possible to accept that, in the stern circumstances of Napoleonic era naval warfare,  a captain had to be firm to be fair, why not also accept that, in dealing with rogue states, terrorism, and challenges to  the long-term survival of the nation, compassion is a fine thing for individuals but a most uncertain guide for  governments? There is a moral case to be made for the policies of the Howard Government such as Work for the Dole,  the war in Iraq, the mandatory detention of illegal boat people along with much else which is supposed to indicate its  heartlessness. But it’s a much harder and more complex argument than that which holds that the proper role of  government is to play the Good Samaritan on an epic scale.
+
+ To some, the moral quality of a government which has stood up for Australian values, stood by Australia’s friends and  delivered more jobs, higher pay and lower taxes to the Australian people is self-evident. Political conservatives, in 
+
+ particular, have a tendency to think that facts like these speak for themselves; that rhetoric is redundant. On the other  hand, in the absence of argument and reassurance, a sceptical public could conclude that the good the Government has  done happened by accident or conspiracy - especially given the ferocious public muggings which seem to be the  inescapable fate of all conservative leaders. 
+
+ Understandably, Australians prefer people whose virtue is uncomplicated. Doctors and nurses, for instance, whose life-saving work is unambiguously good, typically rate over 80 per cent in polls judging the ethics and honesty of different  occupations. Policeman and judges, whose work is no less necessary in a functioning society but who often have to  make the best of a bad lot, typically rank about 60 per cent for ethics and honesty. In a society where “Jack’s as good  as his master”, scepticism about politicians is understandable but an ethics and honesty rating of just 17 per cent  suggests that most people haven’t thought through the “damned if you do, damned if you don’t” nature of the political  process. 
+
+ Of course, more than any other occupation, politicians have a strong vested interest in running each other down.  What’s more, in journalists, they have their own natural reputational predators. Not for nothing have journalists been  dubbed the “fourth estate”. Even so, the Howard Government attracts far more than the usual political vitriol. To most  of its critics, the Howard Government is not just mistaken but morally illegitimate. 
+
+ In his role as the Sydney Morning Herald’s chief political correspondent, Geoff Kitney would not write a column that  he did not believe was professionally detached and politically impartial. He is no David Marr or Anne Summers.  Nevertheless, his judgment of the Howard Government (in his January 10 column) is that it has “legitimised” attacks  on multiculturalism, black welfare and dole bludgers, “sidelined” the community interest, equity and minority rights  and made Australia “more selfish and less tolerant”. He obviously thinks this view is self-evident because counter  arguments about national unity, the side-effects of the welfare system, and the importance of a strong civic culture are  simply ignored.
+
+ Kitney’s conclusion that the thrice-elected Australian Prime Minister is a mean man leading a mean people is actually  quite mild by commentariat standards. The former Lord Mayor of Brisbane described the Prime Minister as the  “Goebbels of Australia” (quoted by Gerard Henderson in the SMH of December 30). The writer Craig McGregor (in  the SMH of December 22) ranked Howard as one of our ten most important people, but only because “whatever you  think of him…he brings out the worst in Australians”.
+
+ In his farewell column for the Herald (SMH 16/1/04), Kitney returned to the theme: “To those who hate (Howard)”, he  said, “it’s the dishonest way they believe he has achieved (his success), more than anything else, that incites their  fury…It’s demonstrably true” he declared “that Howard and his Government have, on a number of documented  occasions, parted company with the truth, the whole truth and nothing but the truth…Even viewed generously, there is  clear evidence of an elasticity with the truth. Viewed from the moral high ground it’s blatant, systematic dishonesty  without apology”. 
+
+ To anyone who has ever sought to have a correction published in a newspaper, this must seem an extraordinary burst of  self-righteousness. Interestingly, politicians’ ethics and honesty rating has improved since the time of the Keating  Government (which attracted nothing like the journalistic bile) from 9 to 17 per cent. As newspaper journalists’ ethics  and honesty rating has increased from 8 to just 12 per cent over the same period, it’s tempting to dismiss Kitney’s  indignation as a bad case of the pot calling the kettle black - tempting but mistaken because there’s a pathological side  to much of the anti-Howard rage.
+
+ To Kitney’s ilk, if any proof of the Government’s dishonesty is needed, there’s always “children overboard”. But  government ministers didn’t make up the claim that boat people had thrown their children into the water. It was based  on official advice at the time. When doubts emerged about that advice, it was not unreasonable to seek official  clarification and, in the meantime, to maintain the status quo. To many people, the distinction between throwing  children into the sea and scuttling the ship on which the children were travelling seemed trivial, revealing more about  the moralising of the media than the integrity of the Government.
+
+ Politicians shouldn’t tell lies. But some information (about private conversations and private lives, national security  and Cabinet discussions, for instance) is necessarily confidential no matter how much journalists (and possibly their  readers) might like to know. Governments shouldn’t break promises but if circumstances change in ways that make  keeping a commitment wrong, a full explanation should be given to the electorate. In a perfect world, governments  would not make promises which are overtaken by events - but no-one inhabits that world except Kitney’s  sanctimonious moral guardians.
+
+ To his credit, Kitney briefly considers the paradox of a systematically dishonest government led by a prime minister  with a strong reputation for trustworthiness - before concluding that ordinary voters don’t mind being misled in a good  cause. Perhaps the gulf Kitney senses is that between professional fault-finders and those for whom good intentions  and good outcomes are more important than a good story. 
+
+ Moral courage is not doing what’s right when everyone else agrees. Moral courage is doing what’s right when people  who should know better declare you’re wrong. By this test, the Howard Government has repeatedly demonstrated that  it’s worthy of the Australian people’s trust. To those accustomed to pass political judgment, tax reform was impossible,  the incorporation of East Timor in Indonesia irreversible, Work for the Dole immoral and the flow of refugee boats  unstoppable - and many haven’t forgiven the Government for showing them up. It’s hard for any eight-year-old  government to seem original but, in this Government’s case, the resentment of the moral guardians whose orthodoxies  have been debunked and whose values have been usurped poses as big a threat to its re-election as the it’s time factor.
+
+ Everything that the politically correct establishment most dislikes about the Howard Government - its reluctance to see  equivalent right and wrong on all sides, its preference for action over dialogue alone, and its readiness to support  traditional allies - was present in the decision to wage war against Saddam Hussein. 
+
+ Sending troops into battle is by far the weightiest decision that a government can make. As the critics constantly point  out, war means that innocent people die. Unfortunately, any peace which leaves tyrants in charge also means that  innocent people die. Pacifism is an honourable course of action for an individual prepared to suffer the consequences of  turning the other cheek. But requiring collective non-resistance is complicity in evil. It’s an odd moral universe where  the accidental killing of Iraqis by soldiers of the Western alliance is worse than the deliberate killing of Iraqis by  Saddam Hussein or where it’s immoral to risk hundreds of Western lives to save hundreds of thousands of Iraqi lives -  unless, of course, it’s only the West’s actions which matter and only Western lives which count. 
+
+ By any standards, Saddam Hussein ran an evil regime. He had invaded his neighbours, used poison gas on his own  people, funded terrorists and harboured Abu Nidal. As the secret burial grounds now reveal, he is the world’s biggest  mass murderer since Pol Pot (and who complained when the Vietnamese army removed him?). 
+
+ Weapons of mass destruction were never the only justification for Australia’s participation in the Iraq war. Even so, if  they had all been destroyed, as the critics now allege, why couldn’t Saddam explain the fate of the poison gas stores the  UN had discovered as recently as 1998? As Kevin Rudd declared to the Zionist Association of Victoria 15 months ago,  “Saddam Hussein possesses weapons of mass destruction. That is a matter of empirical fact” - and there’s no reason to  think that the Iraqi desert has yet yielded up all its secrets. Again, it’s an odd moral universe where a government is  condemned for “going to war on a lie” when no-one (including the critics) thought it was a lie at the time. 
+
+ The Government is often accused of being poll-driven. For good reasons, there is no such thing as a popular war. The  Government sent Australian forces into action in the teeth of public opinion and without a final Security Council  resolution because it would have been morally contemptible to leave the struggle for freedom to others. Serious  governments don’t shirk their responsibilities. By shouldering previously inconceivable burdens in East Timor,  Afghanistan, the Solomon Islands and now PNG as well as Iraq, the Government has demonstrated (unlike the  contemporary Labor Party) that it takes to heart Ben Chifley’s “light on the hill” injunction to work for the betterment  of mankind not just here but wherever we can lend a helping hand.
+
+ People don’t demand miracles from governments but they do expect them to be “fair dinkum” about solving urgent  problems. For years, governments had been trying to stem the flow of illegal boat people into Australia. The former  Labor Government introduced mandatory detention but it didn’t work because it wasn’t rigorously applied. 
+
+ As one of the few countries in the world with a formal refugee resettlement programme, Australia is entitled to pose the  question: why should those illegally trying the back door take the places of those who apply to come in the correct  way? If arriving in Australia and claiming refugee status all-but-guarantees permanent residency, boat people will  continue to come. The Government’s policies are not about stopping refugees entering Australia but stopping people-smugglers putting lives at risk in unseaworthy boats. Indeed, the surest way to prevent dreadful tragedies at sea (such  as that which befell the occupants of SIEV X) is to remove the incentive for people smuggling. 
+
+ Invariably, boat people have moving stories - but so do nearly all the world’s “poor, huddled masses, yearning to be  free” and how many of them can Australia realistically take? The problem for critics of the existing policy is that they  demand an end to mandatory detention and want temporary protection visa holders allowed in permanently but won’t  admit that this amounts to a declaration that if you can get here you can stay here - something an independent country  can never accept.
+
+ Provided they are fed, housed, clothed, protected and dealt with as swiftly as an appeals process will allow, there is  nothing inherently immoral in the mandatory detention of illegal entrants. People in Australian detention centres are  safe from the violence and persecution they may have been subject to in their homelands. They receive the best  possible health care even when they inflict harm on themselves. Even while in detention, their children are educated,  usually at normal Australian schools. The Government has implemented alternative detention options for women and  children but there are limits to how far this can be taken without breaking up families or effectively abandoning the  detention of illegal arrivals. The Australian Government is no more to blame for the plight of people in immigration  detention centres than it is for the plight of anyone else facing the consequences of failing to obey the law.
+
+ Of course, people living in the Middle East (especially as members of minority groups) can hardly be blamed for  wanting to migrate to countries which are prosperous and safe. But the ultimate difference between Australia and the  countries from which boat people flee is the rule of law - to which unauthorised arrivals are a constant challenge.  Australian law does not give everyone who arrives here the right to stay here and it’s inconceivable that it ever will.  Due process has to be followed. Asylum seekers have to demonstrate that they have a well founded fear of persecution  or, after normal channels have been exhausted, that it would be inhumane not to let them stay. It’s human nature to  prefer the strictures of the law when they apply to someone else. Still, a government which respects due process is  being responsible rather than heartless.
+
+ The same tendency to will the end but not the means - to want the result but to shrink from what’s necessary to make it  happen - characterises most criticism of the Government’s Work for the Dole programme. Everyone thinks  unemployment is too high but many commentators support policies which would actually make it worse. For most  unemployed people, lack of training is not the problem because training is nearly always available (albeit at a price).  Lack of jobs is not always the key problem either, because new jobs are mostly filled by people who are already  employed. Unemployment becomes intractable when, for all sorts of reasons (among them, the cost of getting to work,  anti-social hours, interference with other commitments and comparatively low returns), working can seem more trouble  than it’s worth. 
+
+ The only way to tackle structural unemployment is to make work more attractive than the alternative. The Howard  Government has increased wages and increased the returns from working but it has also expected unemployed people  to take their obligations seriously. Work for the Dole embodies the view that government’s duties to the unemployed  haven’t displaced unemployed people’s obligations to the community. Even the “victims” of a market economy retain  significant capacity to help themselves. The Labor Party initially attacked Work for the Dole as “almost evil” and still  wants to “reform” it out of existence but it has been overwhelmingly popular with everyone who understands that  paying people to do nothing is not the best way to get them back to work. 
+
+ It’s to Australian society’s credit that people agonise over armed conflict (even in a just cause) and fret over the side-effects of policies (even when they plainly work). Still, not everything which troubles people’s consciences is  intrinsically wrong and much that is right has fearsome cost. It’s not really surprising that, in rich and comfortable  societies, moral vanity should be more common than moral commitment but the “not in my name” brigade don’t  understand that avoiding hard choices is a luxury governments don’t have. 
+
+ There’s little point arguing with people theologically convinced that the Howard Government is evil but it’s still  important to challenge their critique lest more fair-minded people conclude that the Government is effective but  dishonourable. De Tocqueville once commented that America is great because America is good and that, if America  ever ceased being good, it would also cease being great. Although there’s not the same self-conscious high-mindedness  in Australia’s political culture, we much prefer our leaders to be decent human beings rather than political fixers. 
+
+ The Prime Minister once said that he wanted the Government to under promise and over deliver. This is entirely in  keeping with the character of the Australian electorate but not its political class. Awareness of the limitations of  government and the imperfectability of man, consciousness of the shades of grey which are part and parcel of the  human condition, respect for values and institutions which have stood the test of time, a sense of the importance of  family and cultural bonds, a belief in the value of ritual and tradition, but above all else conviction of the  responsibilities that everyone has to others (however flawed our understandings might be): these are the instincts which  drive the Howard Government but not, by and large, the people who pass judgment on public life. 
+
+ Inevitably, the people who talk about politics are more interested in this month’s promise than last year’s performance.  A new Labor leader is much better copy than a government now eight years old. But it’s the Government’s  participation in the “culture wars” which has most put out its habitual critics. Especially in an election year, the moral  case for the Howard Government ought to be made, not because it never makes mistakes or never has an unworthy  thought, but because the best government since Bob Menzies’ deserves a fair trial. 
+
+ Success is not its own justification but does weigh in the balance of moral judgment. The end does not justify the  means but there is a moral quality to success in a good cause. Moralists will continue to question how the fall of  Saddam, the liberation of East Timor, effective border protection and the sustained reduction in unemployment have  been brought about - but they can’t deny the moral seriousness of the government which helped to make them happen. 
+
+ 
+
+ ENDS
+

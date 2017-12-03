@@ -1,0 +1,161 @@
+---
+title: "Response to Syrian humanitarian crisis"
+date: "2015-10-14"
+creators:
+  - "Fierravanti-Wells, Concetta"
+source: "ASSISTANT MINISTER FOR MULTICULTURAL AFFAIRS"
+subjects:
+trove_url: http://trove.nla.gov.au/version/217097266
+source_url: http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/4134973%22
+---
+
+  concettafierravantiwells.dss.gov.au  http://concettafierravantiwells.dss.gov.au/media-releases/response-to-syrian-humanitarian-crisis
+
+
+
+ Response to Syrian humanitarian crisis
+
+
+
+ 14 October 2015
+
+
+
+ Joint Media Release with:
+
+
+
+ The Hon Christian Porter MP 
+
+
+
+ The Minister for Social Services
+
+
+
+ The Minister for Social Services, Christian Porter, has praised Australia’s state and territory governments, councils,
+
+
+
+ businesses, communities and individuals for their response to the Syrian humanitarian crisis.
+
+
+
+ Since announcing that Australia will resettle an additional 12,000 refugees who are fleeing the conflict, the
+
+
+
+ Government has received scores of offers of accommodation, food, employment, training, financial assistance,
+
+
+
+ education and other forms of support.
+
+
+
+ “The extraordinary response says a lot about our nation and its generosity of spirit,” Mr Porter said. “Australians have
+
+
+
+ big hearts and deep pockets. Offers of help of every conceivable type have come from all over Australia. In Victoria,
+
+
+
+ for example, a businessman has offered to accommodate more than one hundred refugees in a resort. In my home
+
+
+
+ state of Western Australia, a lawyer wants to foster a Syrian refugee child. Families have been telling my Department
+
+
+
+ they are willing to open their homes to refugees. Companies have proposed housing refugee families in mining
+
+
+
+ camps and on houseboats.”
+
+
+
+ Service providers have also been inundated with offers of support.
+
+
+
+ Settling new arrivals into accommodation is a normal part of the settlement process. There is sufficient housing to
+
+
+
+ meet this need, so we are not considering accommodating new arrivals in private households or facilities.
+
+
+
+ “The Government is well-equipped to manage the settlement of the new arrivals through our existing humanitarian
+
+
+
+ settlement programme,” Senator Fierravanti-Wells said. “Housing and other support services will primarily be
+
+
+
+ managed through our strong relationships with service providers under the existing Humanitarian Settlement
+
+
+
+ Services programme. We hope to welcome the first arrivals before the end of the year.”
+
+
+
+ People who come to Australia as part of the intake will be settled in both metropolitan and regional areas. The
+
+
+
+ Government is in the process of determining exactly where, and discussions are continuing between
+
+
+
+ Commonwealth, state and territory and local governments.
+
+
+
+ In determining where humanitarian entrants might settle, the Department considers a wide range of factors including
+
+
+
+ links to family or friends and the availability of appropriate support services.
+
+
+
+ “Later this week, I will be meeting with Refugee Resettlement Advisory Council (RRAC),” Mr Porter said. “It’s been
+
+
+
+ looking at the ways Australia can respond to the needs of the new arrivals.”
+
+
+
+ While the Government does not need private housing to support the resettlement process, many of the other
+
+
+
+ generous offers may contribute to the process in due course. The Minister and the Senator are distributing
+
+
+
+ information kits to MPs to help them work with their electorates on the issue. 
+
+
+
+ The Government is launching a web portal to provide information about the resettlement process and how people
+
+
+
+ may be able to help. The website includes contacts for service providers in local areas, and can be found at
+
+
+
+ https://www.dss.gov.au/syrian-iraqi-humanitarian-crisis
+
+
+
+ .
+

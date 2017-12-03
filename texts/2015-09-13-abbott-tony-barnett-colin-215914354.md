@@ -1,0 +1,203 @@
+---
+title: "Transcript of joint doorstop interview: Perth: 13 September 2015: Grand Gateway Exchange opens ahead of schedule; Syrian humanitarian crisis; Canning by-election; Andrew Hastie; domestic violence"
+date: "2015-09-13"
+creators:
+  - "Abbott, Tony"
+  - "Barnett, Colin"
+source: "PRIME MINISTER"
+subjects:
+  - "Grand Gateway Exchange opens ahead of schedule"
+  - "Syrian humanitarian crisis"
+  - "Canning by-election"
+  - "Andrew Hastie"
+  - "domestic violence"
+trove_url: http://trove.nla.gov.au/version/215914354
+source_url: http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/4074624%22
+---
+
+ 1 
+
+ www.pm.gov.au 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ PRIME MINISTER   
+
+ 
+
+ 13 September 2015    
+
+ TRANSCRIPT OF THE PRIME MINISTER  THE HON. TONY ABBOTT MP 
+
+ JOINT DOORSTOP INTERVIEW WITH THE HON. COLIN BARNETT MLA,  PREMIER OF WESTERN AUSTRALIA,  PERTH    
+
+ Subjects: Grand Gateway Exchange opens ahead of schedule; Syrian humanitarian crisis; Canning by-election; Andrew Hastie; domestic violence.    
+
+ E&OE……………………….……………………………………………………………   
+
+ PREMIER BARNETT:   
+
+ Prime Minister, welcome once again to Western Australia and particularly to the Gateway Project. This  project solves a big problem that Western Australia faced and that was congestion around the airport and, of  course, surrounding areas of Kewdale and Forrestfield are at the centre of the storage and distribution of  projects throughout the state. Also, it’s an incredibly important area for the servicing of the mining industry,  so a lot of heavy vehicles, a lot of traffic around the airport. The project has been a $1 billion project, two  thirds funded by the Commonwealth, one third funded by the state. It’s below budget, it’s ahead of time, and  I think if you look at it now you can see not only an extraordinary engineering feat in terms of the roads and  the interchanges, but beautiful artworks attached to it, the landscaping is terrific and I think this project -  opening a major stage today and probably will be completed by mid-next year - I think it’s a great piece of  engineering and I very much thank the commonwealth and the Prime Minister for his support for this project  and, indeed, for his support for Western Australia. Prime Minister?   
+
+ PRIME MINISTER:   
+
+ Well, thank you. It’s terrific to be here with Premier Colin Barnett. It’s great to be with the State Transport  Minister, Dean Nalder. It’s terrific to be with Steve Irons the Local Member for Swan and also it’s good to  have Andrew Hastie with us today, our candidate for Canning. It’s really good to be here to be with the  Premier for the opening of this latest stage of the Perth Gateway. The Perth Gateway - as the Premier has  said - is a very important piece of local infrastructure, a fabulous piece of local infrastructure. It’s been built  because the state government has wanted it to be built and the Commonwealth government has supported it  being built and today we can say that this important section of the Perth Gateway is opening several months  ahead of schedule, under budget, because you’ve got a good Commonwealth government working with an  efficient state government. That’s what makes our country work: when you’ve got a good Commonwealth  government working with good state governments to deliver for the people of Australia, more jobs, more  growth, and safe communities. It’s really, really important.  
+
+ 2 
+
+ www.pm.gov.au 
+
+ 
+
+ As you know, I’ve often said that I wanted to be an infrastructure Prime Minister. Yesterday, I was with the  candidate for Canning. We made a commitment to spend $116 million in addition to state government  money on the duplication of Armadale Road, today with Steve Irons the Member for Swan, we’re here to  say Gateway is going well too, Gateway is going well too, and this is more good news from the  Commonwealth government, more good news from the state government. So, it is a real pleasure to be here  with the Premier, with the Minister, with the local member, with the local candidate to deliver for the people  of Perth and the people of Western Australia.   
+
+ QUESTION:   
+
+ Prime Minister, are you worried about the destabilising leaks that are distracting from both your  announcement of the Syrian refugees and the Canning by-election? Does it concern you?   
+
+ PRIME MINISTER:   
+
+ Look, I’m concerned with good government. Every day, I’m concerned with good government and that’s  what I’m preoccupied with every day: doing the right thing by Australia. When you do the right thing by  Australia, you can do the right thing by the world and that’s really important - doing the right thing by  Australia: more jobs, more growth and safer communities. That’s what I’m on about every day, not insider  Canberra gossip.   
+
+ QUESTION:   
+
+ But isn’t it a distraction, Prime Minister, at a crucial time, given the closeness of this by-election?   
+
+ PRIME MINISTER:   
+
+ It’s not distracting me. It’s not distracting the candidate. As far as I’m concerned, the Canning by-election is  about the people of Canning. It’s about what’s good for Canning. It’s not about Canberra. It’s not about me.  It’s about the candidate and it’s about Canning.   
+
+ QUESTION:   
+
+ Just on another note - the $70 billion investment in Australia’s naval power - is that a result of your concern  over the growth of China’s military capabilities?   
+
+ PRIME MINISTER:   
+
+ We obviously want to have strong and capable defences. Australia is a country which pulls its weight in the  world. Australia is a country which threatens no one, which helps everyone as far as we humanly can and we  saw an example of that this week with the determination of this Government to take another 12,000 people  from the Syrian warzone; people who have been displaced and who realistically can never go back. This is  on top of the 7,000 or so that we’ve already taken from that warzone and it’s a sign of our country doing  well what it does best: lending a hand to people in trouble wherever we can.   
+
+ QUESTION:   
+
+ Prime Minister, two years ago you said that you would be a government of no excuses. Do you then take  blame for the economy being in a worst shape than it is when you came to power?   
+
+ 
+
+ 
+
+ 
+
+ 3 
+
+ www.pm.gov.au 
+
+ PRIME MINISTER:   
+
+ Well I just don’t accept the premise of that question. What we saw this week was more good news on the  jobs front. We have now created more than 300,000 additional jobs in our economy since September 2013.  You’ve got housing approvals at record levels. You’ve got car sales at record levels. You’ve got company  registrations at record levels. You’ve got bankruptcies at historically low levels, and you’ve seen a number  of surveys that show that business conditions overall are at their best level now since 2008. So, while I  absolutely accept that there are some headwinds overseas, and while I absolutely accept that we’ve seen a bit  of share market turmoil in China, this is a Government which is doing the right thing here in Australia and if  we do the right thing here in Australia we’re very well placed to deal with whatever the rest of the world  throws at us.   
+
+ QUESTION:   
+
+ Just on refugees, there are allegations [inaudible] the captain of the boat and a people smuggler [inaudible]  on board the boat has made the allegation, would you grant her asylum?   
+
+ PRIME MINISTER:   
+
+ Look, we are in the business of ensuring that persecuted minorities: women, children and families who have  been displaced by the conflict in Syria and Iraq and who realistically can never go back to their ancestral  homes, have got the chance of a new life in Australia. That’s what we’re on about. We’re on about working  with communities here in Australia, working with the UN High Commissioner for Refugees to try to ensure  that persecuted minorities displaced by the war in Syria and Iraq, who can never realistically go back, can  make a better life here in Australia and, again, I say, this is our country at its best, this is our country at its  best, extending the hand of help and friendship to people in desperate, desperate need who have nowhere  else to go.   
+
+ QUESTION:   
+
+ Would you be able to provide asylum to people who make a plea like that directly to you, like a personal  plea or would it be a case-by-case basis?   
+
+ PRIME MINISTER:   
+
+ Obviously, our officials will be in the Middle East - extra officials will be in the Middle East from early this  week - and they will be talking to the UN High Commissioner for Refugees, they’ll be talking to people on  the ground, they’ll be talking to communities here in Australia. What we want to do is identify people who  have been displaced; women, children, families from persecuted minorities, people who are in countries of  first asylum: Jordan, Turkey, Lebanon, we are going to find them, we’re going to help them, we’re going to  bring them here to Australia.   
+
+ QUESTION:   
+
+ Prime Minister the Canning by-election is set to see a 10 per cent swing against Liberals, according to the  latest Galaxy poll. What would you see to be an acceptable swing?   
+
+ PRIME MINISTER:   
+
+ Well, I just want us to have a very strong result because we’ve got a very strong candidate, a very strong  candidate in Andrew Hastie. He’s served his country with distinction and I know that he now wants to serve  the people of Canning with the same determination and commitment, the same distinction that he served the  people with Australia. He wants to serve in the Parliament with the same commitment and determination 
+
+ 4 
+
+ www.pm.gov.au 
+
+ that he’s shown over the last 12 years serving in the army and I’m confident that that’s exactly what he will  do if he’s elected next weekend.   
+
+ QUESTION:   
+
+ But you must have a number in mind. Would six per cent be ok given that’s what’s been attributed to Don  Randall’s personal popularity?   
+
+ PRIME MINISTER:   
+
+ Look, I’m just not going to get into this kind of what would be a good result, what would not - I’m just not  going to get into that. All I know is that I want the best possible candidate for Canning and that’s what  we’ve got in Andrew Hastie. I want the best possible result for Canning and the best possible result for  Canning will be to have a really strong representative and that’s exactly what Andrew Hastie will be.   
+
+ QUESTION:   
+
+ Will you be back soon between now and next weekend’s by-election in WA?   
+
+ PRIME MINISTER:   
+
+ Look, I’m not going to get into travel schedule predictions, if you’ll excuse me, but certainly you can be  very confident that throughout the next few days I’ll be beaming as much goodwill and support that I can  this way because it is absolutely in the best interests of Canning that they have a really strong representative  in the Parliament. They had a strong representative in Don Randall, a strong and distinctive representative in  Don Randall, and I think that Andrew Hastie is going to give them that same strong and distinctive  representation in Canberra.   
+
+ QUESTION:   
+
+ Prime Minister if there is a 10 per cent swing, does that make your leadership untenable?   
+
+ PRIME MINISTER:   
+
+ Look again, I know you all want to make it about other people and other things but I want this to be about  Canning. It’s not about Canberra. It’s about Canning. It’s not about me…   
+
+ QUESTION:   
+
+ [inaudible]   
+
+ PRIME MINISTER:   
+
+ Look, again, I’m just not going to play these Canberra insider games. I’m really not going to play Canberra  insider games. We’ve got a terrific candidate for Canning in Andrew Hastie. We’ve got an outstanding state  government here in Perth. We’ve got a great Member for Swan in Steve Irons and I’m standing beside them,  I’m working with them. I want to do the right thing by the people of Australia. That’s my constant objective:  to do the right thing by the people of Australia.   
+
+ QUESTION:   
+
+ If the Liberals lost the Canning by-election would you step down as leader?   
+
+ 
+
+ 5 
+
+ www.pm.gov.au 
+
+ PRIME MINISTER:   
+
+ Well we’re not going to lose the Canning by-election. We’ve got an outstanding candidate. We’ve run a  strong campaign and I think that the people of Canning are going to ask themselves: who is going to look  after them? Who is going to look after Western Australia? Is it going to be a government which scrapped the  carbon tax, scrapped the mining tax, which stopped the boats, which has created 300,000 jobs in just two  years? Or is it a political party which in government spent like drunken sailors, started the boats and  whacked Western Australia with a carbon tax and a mining tax? Well, I think it’s absolutely crystal clear  just where the best interests of the people of Canning, the people of Perth and the people of Western  Australia lie.    
+
+ QUESTION:   
+
+ Prime Minister, can we just get a comment on domestic violence?    
+
+ PRIME MINISTER:   
+
+ Look, this is a very, very serious issue. It’s a very, very serious issue.    
+
+ The home should be a place of safety. The home should be a place refuge from the cares of the world and,  yet, tragically, in some homes - in all parts of Australia - it’s not a place of refuge, it’s a place of  persecution. So, this is a very, very serious issue and I just want to say: any man who raises his hand to a  woman is weak and gutless.    
+
+ If you hit a woman, you’re not a man - that’s my message to my fellow males. And all of us have a job to do  to get the message out.    
+
+ We’ve got to talk to our sons, to our brothers, to our fathers, to our mates: violence is never acceptable.  Violence against women and children is never ever acceptable. So, I think this is a very important issue.    
+
+ As you might remember, there’s already been a COAG summit on domestic violence. We’ve commissioned  Rosie Batty and Ken Ley to report back to us. We’ve already had a lot of preliminary work done. I don’t  want to wait until the end of the year. Frankly, I don’t want to wait even until another summit and I’m going  to have more to say on this subject before the end of the week.   
+
+ Thank you so much.    
+
+ [ends]    
+
+ 
+
+ 
+

@@ -1,0 +1,110 @@
+---
+title: "New York: transcript of doorstop interview: visit to New York; trade; detention centres; East Timor."
+date: "2002-01-28"
+creators:
+  - "Howard, John"
+  - "Liberal Party of Australia"
+source: "PRIME MINISTER"
+subjects:
+trove_url: http://trove.nla.gov.au/version/211233797
+source_url: http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/J5T56%22
+---
+
+ 28 January 2002
+
+ TRANSCRIPT OF THE PRIME MINISTER THE HON JOHN HOWARD MP DOORSTOP INTERVIEW, NEW YORK
+
+ Subjects:  visit to New York; trade; detention centres; East Timor
+
+ E&EO………………………………………………………………………………………
+
+ JOURNALIST:
+
+ How are you feeling being here after September 11?  Is it a strange feeling?
+
+ PRIME MINISTER:
+
+ Of course it is. But we move on and I think it’s a good opportunity to talk about the strengths of the Australian economy to the most important financial community in the world.  I’ll have the opportunity to meet the new Mayor and formally hand to him the condolence book that was comprised of so many signatures in Australia.  It’ll be a good opportunity to talk to the UN Security Council about East Timor and also to take part in the World Economic Forum.  It’s a very crowded program for the next four or five days so I hope you’re all well and truly rested.
+
+ JOURNALIST:
+
+ So it’s not a lap of honour tour Prime Minister?
+
+ PRIME MINISTER:
+
+ What are they?
+
+ PRIME MINISTER
+
+ 2
+
+ JOURNALIST:
+
+ It’s something the former Opposition Leader suggested you might be doing….
+
+ PRIME MINISTER:
+
+ No I’m hard at work in Australia’s interests and I’m very pleased to be back in New York. I think the City of New York has shown extraordinary courage and strength and resilience and people around the world admire that. I think it’s a wonderful gesture that the World Economic Forum should be held here rather than at Davos as a gesture of solidarity to the people of New York and as a way of honouring their extraordinary resilience and strength.
+
+ JOURNALIST:
+
+ Prime Minister, would you be expecting any questions on Australia’s detention centres while you’re here?
+
+ PRIME MINISTER:
+
+ I don’t know but I’ll be very happy to answer any questions and I’m not reluctant to answer any questions. We have a completely principled and soundly based policy and I don’t make any apology for it.  If there are any questions I’ll be very happy to answer them and to point out that Australia is one of the few countries in the world that continues to take refugees on a regular basis, one of only nine.
+
+ JOURNALIST:
+
+ There’s been suggestions that perhaps Woomera should be closed down.  Would that be something that the Government would…..?
+
+ PRIME MINISTER:
+
+ No. I don’t know who’d suggesting that but certainly there’s been no advice come to the Government to do that.  Nobody likes what is occurring at present but there is no alternative and we’re working in a sensible way to try and talk to the people in the detention centres and to point out the futility of what is occurring and or has been occurring over the past week or so.
+
+ JOURNALIST:
+
+ Mr Howard, will you be proposing any timetable for the withdrawal of peacekeepers from East Timor in your talks with the UN Security Council?
+
+ PRIME MINISTER:
+
+ 3
+
+ No.  I wouldn’t want to give any signal that Australia is in a hurry to withdraw from our responsibilities in East Timor. Quite the reverse.  Australia will continue to carry a significant part of the responsibility for helping East Timor into the future. It’s a small, still very fragile country. The independent celebrations will be in May but it will still need a lot of help from Australia but also from other countries and I will hope to get that point across to people in the United Nations that we do need other help. But Australia will not be walking away from her responsibilities. We have a very important responsibility in East Timor and whilst over time there can be some phasing down and we’re certainly not going to engage in any premature withdrawal.  There may be, from time to time, there’ll be adjustments to the troop level. But we don’t have in mind any withdrawal of our troops as such. I don’t think that would be in the best interests of East Timor.
+
+ JOURNALIST:
+
+ How far do you expect you will advance push for a free trade agreement in light of the fact you aren’t meeting with President Bush?
+
+ PRIME MINISTER:
+
+ Well it was never intended that I would meet the President because I’m coming to the World Economic Forum. Mark Vaile will be talking to the Special Trade Representative, Mr Zoellick.
+
+ JOURNALIST:
+
+ Do you think he’ll make progress though?
+
+ PRIME MINISTER:
+
+ I think it’s a case of making some progress. It will take a while. It’s something that will take a while and we have of course a few concerns about steel for example. I’ve written to the President expressing our concern about the possible imposition of quotas that will affect Australian steel exports to the United States. We don’t subsidise our steel industry and there’s been a lot of pain as Australians will know in  [inaudible] the steel industry to cities like Newcastle and Woollongong and in South Australia.  There’s been a lot of pain, a lot of job losses therefore we react rather strongly to protective measures and quotas and subsidies by other countries that affect the highly efficient Australian steel industry.
+
+ JOURNALIST:
+
+ Any response from the President?
+
+ PRIME MINISTER:
+
+ 4
+
+ I only wrote the other day.
+
+ JOURNALIST:
+
+ Mr Howard, do you have a sense of unfinished business being in New York….?
+
+ PRIME MINISTER:
+
+ Well I do. I mean obviously those of you who were with me in September in Washington will recall the drama and the trauma of it. And of course there’s a sense of unfinished business.  It’s impossible to be here without thinking about that and I was thinking about it just about all the way in from the airport .  It was a very natural thing. But I’m amongst millions of people who think about it. It’s a very tragic awful event but out of that tragedy there’s a new spirit of cooperation amongst nations which I found particularly evident at the APEC meeting in Shanghai.  President Bush and the President of Russia and the President of China were working together in a lot of areas where they had common ground and they always have to try and see out of even the most awful and foul deeds you can see some positive things coming.  Thank you.
+
+ [ends]
+

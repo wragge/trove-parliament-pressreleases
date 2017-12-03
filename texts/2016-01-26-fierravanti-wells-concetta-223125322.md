@@ -1,0 +1,57 @@
+---
+title: "New term for Government's Settlement Advisory Council"
+date: "2016-01-26"
+creators:
+  - "Fierravanti-Wells, Concetta"
+source: "ASSISTANT MINISTER FOR MULTICULTURAL AFFAIRS"
+subjects:
+trove_url: http://trove.nla.gov.au/version/223125322
+source_url: http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/4323108%22
+---
+
+ 
+
+ The Hon. Christian Porter MP  Minister for Social Services 
+
+ The Hon. Concetta Fierravanti-Wells MP  Assistant Minister for Multicultural Affairs 
+
+ 
+
+ New term for Government’s settlement advisory council 
+
+ 26 January 2016 
+
+ The Commonwealth Government today reaffirmed its commitment to  settlement services by announcing the members of the newly named Settlement  Services Advisory Council.   
+
+ Minister for Social Services, Christian Porter, said the council chaired by Paris  Aristotle, would focus on improving migrant and refugee integration into  Australian society and helping them get the skills they need for a job.   
+
+ “Migrants and refugees face particular challenges putting them at a social and  economic disadvantage, which in turn can increase the risk of social isolation  and disengagement,” Mr Porter said.    
+
+ “The Settlement Services Advisory Council is focussing on helping these  groups as they look to build a positive future for themselves in Australia,  particularly as we prepare to welcome an additional 12,000 refugees through the  Syrian humanitarian intake.”   
+
+ Senator Fierravanti-Wells said the Council would formally meet several times a  year and also participate in consultations and other stakeholder engagement.     
+
+ “In particular, we will work with the council to focus on innovative ways to  maximise the participation of migrants and humanitarian entrants through  improved English language, employment and education outcomes,” Senator  Fierravanti-Wells said.     
+
+ “I look forward to their expert advice to guide policy and programme  innovation and help drive an agenda of participation.” 
+
+ 
+
+ The Council is also expected to liaise closely with the Australian Multicultural  Council as part of its work.  
+
+ The Council members are: 
+
+ ï· Mr Paris Aristotle AM, Chair  ï· Ms Carmel Guerra  ï· Ms Gail Ker OAM  ï· Ms Carmen Garcia  ï· Mr Abeselom Nega  ï· Dr Mohammed Taha Alsalami AM   ï· Dr Eman Sharobeem   ï· Ms Melissa Monteiro   ï· Ms Maha Abdo   ï· Ms Catherine Scarth    
+
+ The term of the Council goes through to December 2017.   
+
+ Visit the DSS website for more information on the Settlement Services  Advisory Council. 
+
+ Media Contacts 
+
+ Minister Porter: Paul Moger 0477 760 468 
+
+ Assistant Minister Fierravanti-Wells: Isobel Brown 0477 719 383   
+
+ 
+

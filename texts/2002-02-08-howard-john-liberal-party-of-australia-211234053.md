@@ -1,0 +1,112 @@
+---
+title: "Jogyakarta: transcript of doorstop interview: visit to Indonesia; Peter Reith."
+date: "2002-02-08"
+creators:
+  - "Howard, John"
+  - "Liberal Party of Australia"
+source: "PRIME MINISTER"
+subjects:
+trove_url: http://trove.nla.gov.au/version/211234053
+source_url: http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/5NV56%22
+---
+
+ www.pm.gov.au
+
+ 8 February 2002
+
+ TRANSCRIPT OF THE PRIME MINISTER THE HON JOHN HOWARD MP DOORSTOP INTERVIEW, JOGYAKARTA
+
+ Subjects:  visit to Indonesia; Peter Reith.
+
+ E&OE…………………………………………………………………………………………...
+
+ JOURNALIST:
+
+ Prime Minister, can you say why you came to this part of Indonesia, why you put it on your itinerary?
+
+ PRIME MINISTER:
+
+ Because it has a great cultural significance to the people of Indonesia and it’s important as a courtesy in visiting a country to recognise the cultural homelands and the cultural centres of the nation. And Jogjarkta, and particularly this temple played a very important spiritual and sentimental part in Indonesia’s history and of course Jogjarkta had quite a role in the independence movement after World War II.
+
+ JOURNALIST:
+
+ There was a lot of controversy over this visit, looking back on it now was it worthwhile?
+
+ PRIME MINISTER:
+
+ I thought it was worthwhile.  I don’t think it was any more controversial than visits normally are.  I have realistic expectations of our association with Indonesia, the mistake that has been made in the past in relation to Indonesia is that people have elevated expectations out of the relationship and those expectations are always doomed to be disappointed. But that was the error of earlier approaches.  We have gone through difficult times, East Timor was an example, Australia will of course not resile from the position we took, it was correct, but equally we move on. I agreed yesterday with Ali Alatas who was the Foreign Minister at the time that whatever may have been the differences that is a past chapter and we should move on. But we should move on in realism, this is an important relationship, a very important one.
+
+ PRIME MINISTER
+
+ 2
+
+ But it is not the overwhelming single relationship that Australia has around the world.  But a particularly important one in our part of the world and generally, and I think we’ve made very solid progress and the static about the chairman of the MPR and so forth, that’s just domestic politics, I’m quite untroubled by that.
+
+ JOURNALIST:
+
+ When will you be coming back?
+
+ PRIME MINISTER:
+
+ Oh I don’t know.
+
+ JOURNALIST:
+
+ (inaudible).
+
+ PRIME MINISTER:
+
+ Well I’ve been here five times, I don’t think I’ve got another one on my slate just at the moment.
+
+ JOURNALIST:
+
+ Mr Howard are you worried that Mr Reith may have to face Labor Senate inquiry over the allegations of boat people being thrown overboard during the election.
+
+ PRIME MINISTER:
+
+ I’m quite certain if Mr Reith is asked anything about that issue he’ll be able to give a good answer for himself.
+
+ JOURNALIST:
+
+ Prime Minister are there any specific proposals on the table at the moment from either Australia or Indonesia that would put into effect the MOU that was signed yesterday.  A specific proposal in relation to police, military, intelligence, and so on?
+
+ PRIME MINISTER:
+
+ I would imagine arising out of the MOU there will be some early discussions between the relevant agencies and specific proposals will emerge from those discussions.
+
+ JOURNALIST:
+
+ None at this stage?
+
+ PRIME MINISTER:
+
+ 3
+
+ Well the document was only signed yesterday, I know we work fast but we’ve been up early out here.
+
+ JOURNALIST:
+
+ What are the odds that Buddha will grant you your wish?
+
+ PRIME MINISTER:
+
+ Well you know I always have the long term health of the party I lead uppermost in my mind because it being in office is good for the nation.
+
+ JOURNALIST:
+
+ Did you enjoy the tour Prime Minister?
+
+ PRIME MINISTER:
+
+ I did enjoy the tour and I thought I was received in a very friendly fashion by the Indonesian people.  I’m now about to meet some university students, so if they are true to their kind all around the world there might be some lively exchanges.
+
+ JOURNALIST:
+
+ Do you have a plan to visit other parts of Indonesia perhaps?
+
+ PRIME MINISTER:
+
+ Not now, maybe at some time in the future.  But I really must get back to Australia tonight because our Parliament is sitting next week and I have a lot of work to do at home.
+
+ [ends]
+

@@ -1,0 +1,91 @@
+---
+title: "Transcript of joint press conference: Sydney: 31 October 2015: National Mosque Open Day; voting age; Rugby World Cup; immigration portfolio"
+date: "2015-10-31"
+creators:
+  - "Fierravanti-Wells, Concetta"
+source: "ASSISTANT MINISTER FOR MULTICULTURAL AFFAIRS"
+subjects:
+  - "National Mosque Open Day"
+  - "voting age"
+  - "Rugby World Cup"
+  - "immigration portfolio"
+trove_url: http://trove.nla.gov.au/version/218522066
+source_url: http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/4171650%22
+---
+
+ The Hon. Scott Morrison MP  Treasurer  Senator Concetta Fierravanti-Wells  Assistant Minister for Multicultural Affairs 
+
+ 1 
+
+ 
+
+ 
+
+ TRANSCRIPT 
+
+ JOINT PRESS CONFERENCE, SYDNEY  SATURDAY 31 OCTOBER 2015   
+
+ E&OE   
+
+ Subjects: National Mosque Open Day; voting age; Rugby World Cup; immigration portfolio.   
+
+ TREASURER: Well, it’s wonderful to be here at Lakemba Mosque today and earlier today I  was at Arrahman Mosque in Kingsgrove, the Shia Mosque. I am also joined here by Senator  Connie Fierravanti-Wells and David Coleman. Connie, has been doing an outstanding job in  consulting with communities right across the country but with her responsibilities as the  Assistant Minister responsible for multicultural affairs she has done more than I think any to  really be engaging and celebrating days like today. I am excited to be here today and to be  joining friends, great friends like Samier Dandan and Jamal Rifi, who I have had a lot of  association with, Hassan Awada and others who have really, I think, been a key contributor  to how the Government is working through the various issues that we have.     
+
+ Today, is a day where the doors are open, as the doors are open always here at Lakemba  Mosque, and the opportunity for people to come as they have from across our wonderful  city and to have a look inside, to ask questions, to enjoy the hospitality, to take part with the  kids and the fun that is taking place. This is a great open day and the Government is very  pleased to be able to be supporting National Mosque Open Day. I have met people who  have come from my electorate down in Caringbah, people from the Blue Mountains, people  have come from Manly and right across the city and it is great to see the inquisitive nature  of people to want to come and learn and understand because that is what today is all about.  David does that in his electorate everyday working with his local communities as Connie  does right across the country.     
+
+ So, it is a tremendous initiative, there is a lot to celebrate about the positive role that faith  and religion play in our society. It is an important dimension to our very strong community  and the multi-faith, the multi-ethnic, multi-nationality country that we have become over a  long period of time. The one thing we all share in common is that we love this country. We  love Australia, we love the values that Australia is built upon and today, National Mosque  Open Day, is as much a celebration about those great Australian values as about anything  else. And with those brief comments I will ask Connie to say a few words because she has  had direct responsibility in supporting National Mosque Open Day today.    
+
+ 2 
+
+ 
+
+ SENATOR CONCETTA FIERRAVANTI-WELLS: Well, thank you very, very much and thank you  for joining us today, it is really important to join us her today. Look, the Commonwealth  Government is very glad to be supporting National Mosque Day. Recently we had a launch  of the Welcome Australia group in Canberra and it’s so important that we come together on  days like this. As Scott has said I have spent a lot of time engaging with so many of our  communities but most especially in recent months with our Muslim communities. One of  the most important things in Australia that have made us, not just one of the most culturally  diverse but one of the most socially cohesive nations on earth is the social glue that binds us  together. Those important things that we share as Australians - values and beliefs but also  as Scott said the interfaith. It’s great to have so many people coming through the doors here  at Lakemba, there are Mosques around Australia - there are about 14 Mosques around  Australia that will open their doors today and if it helps educate people better about the  Muslim faith, well then it has been a wonderful, wonderful exercise.     
+
+ Can I just say there is a lot that is not known about the interfaith work that is done in this  country. Just this week I attended, earlier this week, the Great Synagogue where Archbishop  Fisher was delivering the Nostra Aetate address along with the Chief Rabbi and sitting in the  second pew was the Grand Mufti of Australia who was joined by the Melkite Bishops, by the  Armenian Bishops, by all the interfaith leaders in this country. That is the interfaith  framework that we operate under and that is why National Mosque Open Day is such an  important contribution of that. Thank you.    
+
+ TREASURER: Thank you, Connie. Can I also thank Sheikh Safi and Sheikh Yousuf. Sheikh Safi  here at Lakemba and Sheikh Yousuf over at Kingsgrove for their very warm welcome today  and for all of the organisation particularly to Samier Dandan and the crew here at the LMA  who do tremendous work out in the community. I think that is what days like this also  demonstrate, that places like this all around the country are doing a lot of work in the  community to support those who are disadvantaged, to support their communities, to  support people into employment. In the last Budget over $20 million was assigned to  support vulnerable migrant and refugee communities and we’re apparently close to  finalising a very significant programme here with the LMA that will work on those strategies  to help young people in and around this community get into jobs, get into education and  particularly using sport. I was here with Jamal Rifi where we announced that programme  after the last Budget and we are getting very close to finalising that and we will have more  to say about that in the not too distant future.     
+
+ Any questions?    
+
+ QUESTION: Treasurer, can I just ask in the wake of the Parramatta shooting, and there being  calls from a very small minority for Mosques to shut down things like this - what is your  message to those people within the Australian community?    
+
+ TREASURER: Well, I think the message is to come along today and have a look. The doors are  open, come and ask your questions, to come and see for yourself and to engage with  people. That is why this country is as strong as it is because Australians engage with each  other, Australians respect each other and respect the contributions that each and every  Australian can make. So, today is a great opportunity for people to come and have their  questions answered and I think to address any issues that they might have. 
+
+ 3 
+
+ 
+
+ 
+
+ QUESTION: Treasurer, how important are days like these in light of things like the  Parramatta shooting [inaudible]?    
+
+ TREASURER: These days are incredibly important and I think those recent events hang very  heavily on us all and we’re equally all appalled by them. I particularly, again, want to  congratulate Jamal and other leaders who were so quick to come out and denounce that  terrible terrorist event that took place. There is no comfort in this place or any of the  mosques I have visited for that sort of murder and violence and terrorism. There is no  comfort for those who would want to engage in those sort of practices in this place or  places like it and I think today is a good opportunity for people to see first-hand why that is  true for themselves. Sometimes people’s views about different religions are informed by  third party conversations, things they have heard from somewhere else, things they have  read on the internet - all those sorts of things. Well, put all that aside, come down…    
+
+ SENATOR CONCETTA FIERRAVANTI-WELLS: Come see for yourself.    
+
+ TREASURER: Come see for yourself, go direct to the source and find out.    
+
+ QUESTION: What do you make of Bill Shorten’s [inaudible] the voting age to 16?    
+
+ TREASURER: Oh, look, I will let Bill Shorten talk about the very few plans he has. He can  respond to those himself. As a Government we are focussed on growing jobs and we are  growing the economy and ensuring that a very strong and cohesive society and that is why  we are here today and we are very firmly focussed on those plans for a stronger Australia.  People around here and right across the country can be confident of their jobs and get  themselves into jobs. That is why we are going to be investing around $5 million here  specifically to support the youth employment programmes and intervention programmes  which say to young Australians who are living here that you have a great future in this  country. You have a great opportunity in this country and we want young people who walk  in and out of these doors, particularly every Friday to be able to go out in the community  and say I have got a wonderful opportunity to have a positive life in this country and make a  great contribution as an Australian. Down stairs I met a young woman and she is a young  Muslim woman and she is studying to be a journalist. So, I suspect on one of these occasions  sometime in the future she will be standing there with a microphone thrust in my face. But  she wants to be a sports journalist and she is madly looking forward to the Rugby World Cup  tonight. I asked her what her favourite sport was and she said rugby. So, we’re all combined  in one faith today and that is the Wallabies and seeing them have a great performance  tonight and we very much hope it will produce a third World Cup victory.    
+
+ QUESTION: Treasurer, can you confirm reports that the Government is considering  Kyrgyzstan as a place to [inaudible]?    
+
+ TREASURER: Those are matters that are best left to the Immigration Minister but I would  simply say this, when the previous government announced its policy that people would go  to offshore processing never to come to Australia they never had any third country that they  were talking about. They had no plan. In fact when we came to Government they were only  planning for one in six of their expected arrivals to be going offshore to processing centres 
+
+ 4 
+
+ 
+
+ offshore. So, look, the Opposition had no real plan on this when they were in government  and as a Government we’ve picked up those facilities and we have worked hard and are  working with countries where we can to ensure that we can address the issues that are  there. One thing I know for sure is that under this Government’s policies we put an end to  the terrible deaths at sea and the terrible process that we saw on our borders and we are  very pleased that we have achieved that outcome and I know those views are shared  whether they are in this place or in others.    
+
+ QUESTION: So, is the Government in talks with former Soviet Bloc countries?    
+
+ TREASURER: You know our policy on commenting on these issues and I am not going to  depart from that today or any other time.     
+
+ Thanks very much for your time.    
+
+ (ENDS)   
+
+ Further information: Sonia Gentile 0455 050 007 
+

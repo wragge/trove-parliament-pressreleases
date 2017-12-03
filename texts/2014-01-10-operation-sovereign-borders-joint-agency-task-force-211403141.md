@@ -1,0 +1,53 @@
+---
+title: "No illegal boat arrivals for more than three weeks - Minister for Immigration and Border Protection"
+date: "2014-01-10"
+creators:
+  - "Operation Sovereign Borders Joint Agency Task Force"
+source: "AUSTRALIAN CUSTOMS AND BORDER PROTECTION SERVICE"
+subjects:
+trove_url: http://trove.nla.gov.au/version/211403141
+source_url: http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/3011337%22
+---
+
+ No Illegal Boat Arrivals For More Than Three Weeks -  Minister for Immigration and Border Protection 
+
+ 10-01-2014 -  
+
+ Once again, there have been no persons transferred to Australian immigration authorities  during the past reporting week under Operation Sovereign Borders, who arrived in Australia  illegally by boat. 
+
+ It has been more than three weeks since the last group of illegal maritime arrivals were  transferred to immigration authorities by Border Protection Command. 
+
+ While January is traditionally a quieter period of arrivals, the strong policies being  implemented by the government mean that people smugglers are being denied the ability to  ply their trade with any success. 
+
+ During the same period last year 419 people illegally arrived and in the two previous years  there were 278 and 271 arrivals respectively. This year, none have been successful during this  period. 
+
+ The latest weekly report on Operation Sovereign Borders is attached detailing such transfers,  as well the number of persons transferred to our offshore processing centres and the  population at those centres as well as Christmas Island. 
+
+ For operational security reasons, the government does not confirm or otherwise comment on  reports of on-water activities in relation to Operation Sovereign Borders or disclose details of  any operations. 
+
+ People smugglers have used official commentary on such matters to make dangerous  assumptions about our maritime operations, which puts people at risk. 
+
+ The Government's policy of no public comment on operational matters is based on the advice  of border protection agency and operational leaders to protect the security of our operations  and to ensure that they can be conducted with maximum safety and effectiveness for all  involved.  
+
+ The Government considers the illegal entry of boats to Australia as a significant affront to our  sovereignty. 
+
+ The Government will continue to take all steps necessary to stop the boats consistent with our  commitments to the Australian people and to work with our partners wherever possible to  achieve this result. 
+
+ The Government has a strong mandate from the Australian people to restore the policies that  worked under the Howard Government to stop the boats that were abolished by Labor and the  Greens.  
+
+ Any suggestion that the Government is doing anything other than acting on our long held  policies and commitments, as claimed by the Leader of the Opposition, is ignorant and  desperate. 
+
+ We will not be following Labor's failed approach that allowed more than 50,000 people to  turn up on over 800 boats and in excess of 1,100 people dead. We are restoring control over  our borders that was surrendered under Labor. 
+
+ It is not the policy or practice of the Australian Government to violate Indonesian territorial  sovereignty. Any suggestion that the Government has acted contrary to this policy is false. 
+
+ Australia respects Indonesia's territorial sovereignty and will continue to do so, just as  Indonesia has stated it respects Australia's territorial sovereignty. 
+
+ I also stress that personnel involved in Border Protection operations associated with  Operation Sovereign Borders conduct their roles with the highest levels of professionalism,  integrity and personal courage in extremely trying and challenging circumstances.  
+
+ Actions and activities are undertaken consistent with Australian domestic law and Australia’s  obligations under international law. 
+
+ Additionally, in the interests of preserving operational security, and to maintain the safety of  any person within Border Protection Command’s care, the procedures and techniques used to  effect maritime security operations are not disclosed. 
+
+ 
+

@@ -1,0 +1,850 @@
+---
+title: "Phillip Street, Sydney, 9 September 1999: transcript of press conference [East Timor]"
+date: "1999-09-09"
+creators:
+  - "Howard, John"
+  - "Liberal Party of Australia"
+source: "PRIME MINISTER"
+subjects:
+  - "East Timor"
+trove_url: http://trove.nla.gov.au/version/211476944
+source_url: http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/QXE06%22
+---
+
+   
+
+  
+
+  PRIME MINISTER
+
+  
+
+ 9 September 1999
+
+  
+
+  TRANSCRIPT OF THE PRIME MINISTER
+
+  THE HON JOHN HOWARD MP
+
+  PRESS CONFERENCE
+
+  PHILLIP STREET, SYDNEY
+
+  
+
+  Subjects: East Timor
+
+  
+
+ E&OE
+
+  
+
+ Good afternoon, ladies and gentlemen, I’d like to 
+brief you on where things have come to in relation to East Timor today. 
+I’ve had a number of important discussions this morning. The first 
+that I would like to canvass is a lengthy discussion I had with Mr Ian 
+Martin who is the head of UNIMET in Dili. It was the first direct discussion 
+I’d had with Mr Martin. He indicated to me that the current situation 
+regarding UNAMET in Dili was that the mission was not being withdrawn, 
+that it was proposed to reduce the size of the contingent down to a 
+number of, in the order 40, and that the intention was that that would 
+remain.
+
+  
+
+ The indications are that although the situation remains 
+very difficult and quite unsatisfactory the security position has not 
+deteriorated today. Food and water is available to the UNAMET contingent 
+and the intention of the United Nations is that they should maintain 
+that presence in Dili. I indicated to Mr Martin that the Australian 
+Government would, to the extent that it was allowed, provide food, water 
+and all other supplies that might be needed by the UNAMET contingent 
+in Dili.
+
+  
+
+ I also had the chance to talk again to Mr Alan Mills 
+who’s the Commander of the Australian Federal Police contingent and 
+he confirmed essentially what I’d been told by Mr Martin. He remains, 
+as I found him when I spoke to him on Monday night, a very clam and 
+impressive figure who has provided magnificent leadership to the AFP 
+contingent. And I again record my gratitude to the calm and professional 
+way in which Australian personnel, consulate people, the Australian 
+Federal Police, the military liaison officers and the military attache 
+at the Australian Embassy, Brigadier Mowlen who’s been very heavily 
+involved in the discussions with the local TNI commanders and very heavily 
+involved in negotiating on the ground. We should all, as Australians, 
+be especially proud of the contribution that these people have made 
+in a very difficult situation.
+
+  
+
+ The second discussion I had, or the second discussion 
+I ought to mention, although the discussion took place before the first 
+two that I’ve mentioned, was with President Clinton who rang me at 
+about ten past eight this morning to discuss my and his assessment of 
+the situation. He indicated to me that they were continuing in different 
+ways to try and persuade the Indonesians to assert more control over 
+the situation in East Timor, or in default of that, to agree to the 
+introduction of a peacekeeping force.
+
+  
+
+ The situation regarding an American contribution to 
+an international peacekeeping force is that if there is a decision to 
+commit a multinational force then the United States will support that 
+commitment in a tangible way. Discussions are continuing on the nature 
+of that support. I regarded the American position, as expressed to me 
+by President Clinton, the tone of the conversation and the language 
+used as being more positive than had been some of the assessments of 
+that were made. I think some of the reporting of the Defence Secretary’s 
+remarks may have been incomplete and in any event the situation is not 
+that the United States has ruled out the contribution of troops. The 
+situation is that they will support a multinational force in a tangible 
+way. The extent of that commitment or the character of that tangibility, 
+if I can put it that way, is still under discussion.
+
+  
+
+ The President is well aware of the feeling of the 
+Australian Government and the Australian people regarding American involvement 
+in this operation. It was quite a constructive discussion and we agreed 
+to talk again if necessary before he left the United States to go to 
+Auckland. And if that doesn’t occur we’ll naturally have a further 
+meeting to discuss the situation when we see each other at the APEC 
+meeting in Auckland over the weekend.
+
+  
+
+ I should also inform you that Federal Cabinet has 
+decided that if it becomes necessary and as part of the final phase, 
+that is the post-separation phase, any United Nations’ sanctioned 
+peacekeeping operation, if they were required, could include up to 4,500 
+Australian personnel. The idea is that we would initially commit 2,000 
+and then after a period of time, as we move into the final phase, then 
+we would be willing and able to increase that commitment to 4,500.
+
+  
+
+  It’s fair to say that the situation on all of the information available 
+to me today is, of course, still unacceptable, is still quite deplorable. 
+It still remains the case that insufficient protection is being given 
+by the responsible authorities to innoc ent people, however, there 
+has been some stabilisation. I understand that the number of domestic 
+refugees has been significantly reduced. I understand that a number 
+of them, perhaps even up to half on some estimates, have left the compound 
+and that, of course, has eased the situation within the compound. I 
+do understand, from what I was told, that the compound is receiving 
+adequate supplies of food and water and discussions are continuing about 
+the situation. The air bridge provided by Australia remains open and 
+we will naturally continue to provide all the assistance that we can 
+to the UNAMET operation. And we would hope that any assistance that 
+we do wish to provide and do provide will not in any way be hindered 
+by the Indonesian authorities.
+
+  
+
+ So, I think I can conclude by saying that whilst the 
+situation remains very unsatisfactory and very difficult there has been 
+some stabilisation today and some sign of slight improvement. I wouldn’t 
+want to put it any more strongly than that. Certainly the advice I have 
+directly from the UMAMET boss is that UNAMET is staying, albeit in a 
+reduced form and that is the current intention. I expect over the course 
+of the next 12 or 24 hours to have further discussions with the Secretary-General 
+of the United Nations, who I understand was to have some further discussions 
+with the Indonesian President some time today.
+
+  
+
+ Are there any questions?
+
+  
+
+  JOURNALIST:
+
+  
+
+ Prime Minister, does the stabilisation meet your requirement 
+of martial law bringing the situation under control within 48 hours?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ No, look, please in a situation like this except that 
+I choose my words very carefully, when I say there has been some stabilisation 
+I don’t mean any more than that. Of course I only mean that. I don’t 
+regard the situation and can’t on the information available to me 
+regard the situation as in any way satisfying the requirements that 
+I have been speaking about publicly. It remains our position...our objective 
+is to for the Indonesian authorities to do their job. They still have 
+a distance to go before that is achieved and if that can’t be done 
+well, we would like to see a peacekeeping force inserted into the situation. 
+All I am saying is that there is some evidence of the stabilisation. 
+I think it’s very important that we, all of us, you included, choose 
+your words and your comment very carefully because we are dealing with 
+a very delicate situation. We are dealing with a situation that involves 
+the lives of people and also we are dealing with a situation that involves 
+a very important international relationship between Australia and our 
+nearest neighbour. So all I am saying is that there has been some stabilisation 
+and we would naturally hope that that be improved but we are not really 
+in the business of saying, well look, problem solved. Please, I am not 
+saying that for a moment. Yes Dennis.
+
+  
+
+  JOURNALIST:
+
+  
+
+  Is there any indication for change of attitude from the Indonesian 
+parties in relation to a peacekeeping force and in contact with President 
+Habibie?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ I have not had any contact with the President on that. 
+I don’t have anything to add to the general understanding on that 
+subject at this stage.
+
+  
+
+  JOURNALIST:
+
+  
+
+ [Inaudible] the Chinese President regarding the situation 
+in East Timor and did he indicate to you China’s position regarding 
+a peacekeeping force?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ Well, I thought the interpretation of what the Chinese 
+President said yesterday was, how shall I put it, could not be substantiated 
+by what he said. I was surprised at the interpretation. I thought his 
+response yesterday was very non-committal. I, in the private discussion 
+with the President, I explained our position and he did not in any way 
+express a concern about or objection to. And I understand that there 
+has been some indication given to our representative at the United Nations 
+that the Chinese might not necessarily exercise a veto in relation to 
+any Security Council vote. So I think some of the interpretations placed 
+on President Jiang Zemin’s remarks last night by some of the media 
+here were not soundly based. I can only report to you what happened. 
+You saw his public answer, I can tell you privately. I told you what 
+our position was and what our attitude was and he offered no criticism 
+indeed he offered no comment at all. We simply passed onto another subject. 
+So in those circumstances I don’t think it can be said that he has 
+a position of definite opposition.
+
+  
+
+  JOURNALIST:
+
+  
+
+ [Inaudible]
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ I beg your pardon.
+
+  
+
+  JOURNALIST:
+
+  
+
+ [Inaudible]
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ I think that will be a mixture of nations but you 
+perhaps should talk to the...
+
+  
+
+  JOURNALIST:
+
+  
+
+ [Inaudible] local UN staff.
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ Well, look, I am not, I mean, I am just reporting 
+on a discussion I had and I don’t purport to know the mind of Mr Martin 
+on everything. But I gather the impression that it would just be a scaled 
+down version of what had previously been operating.
+
+  
+
+  JOURNALIST:
+
+  
+
+ [Inaudible] on troops...2000…[inaudible] 4,500...
+
+  
+
+  PRIME MINISTER:
+
+  
+
+  If needed later on, yes. The additional 2,500 if needed later on. 
+But let me stress again that all the talk I indulge in in relation to 
+Australian forces is conditional on those three things.  That 
+you need a United Nations mandate, you need Indonesian consent and you 
+need a reasonable level of participation by appropriate countries.
+
+  
+
+  JOURNALIST:
+
+  
+
+ What kind of pressure would be applied on Indonesia 
+[inaudible] considering...
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ Well, it’s never possible to, sort of, definitively 
+say what is enough pressure or what further pressure might be. Our objective 
+remains is to use all appropriate pressure to bring about the things 
+I said a moment ago were necessary. And I am not going to try and say 
+what is the end of that pressure or whether enough pressure has been 
+applied. All I say is that we continue to apply pressure and we continue 
+to encourage other countries to do likewise.
+
+  
+
+  JOURNALIST:
+
+  
+
+ Sir, there’s been some reporting that...
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ Where are you from?
+
+  
+
+  JOURNALIST:
+
+  
+
+ The Australian. There’s been some reporting that 
+Australian troops [inaudible] tomorrow for [inaudible] for UNAMET. [Inaudible] 
+overtaken by their decision to stay on indefinitely?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ Well, there are a lot of reports swirling around and 
+I don’t comment on all of them.
+
+  
+
+  JOURNALIST:
+
+  
+
+ Are you optimistic the Indonesians will finally allow 
+a peacekeeping force into [inaudible]...
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ No, I am not going to express a view either way on 
+that. I am not, I am not going to express a view. I am certainly not 
+saying I am optimistic but in this situation you don’t rule anything 
+in or out. Look, please, I can only…I am trying to deal in facts and 
+reasonable possibilities. I think once you start getting into asking 
+me whether I am optimistic or pessimistic and so forth a wrong interpretation 
+can be given on my response. All I can say is that there has been some 
+stabilisation, small stabilisation. I don’t think you should write 
+that too hard and I don’t think you should take it to mean any more 
+than what I have just said.
+
+  
+
+  JOURNALIST:
+
+  
+
+ Did President Clinton express any opinion about who 
+should lead a UN peacekeeping force?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ No, he didn’t. I therefore would assume that he 
+accepts the judgement of the United Nations on that which is that Australia 
+should lead it and that, is in our view, appropriate.
+
+  
+
+  JOURNALIST:
+
+  
+
+ Prime Minister, is it still the view of the Australian 
+Government [inaudible] and the Indonesian Government are not determined 
+to overturn the result altogether of the East Timor ballot?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ Greg, the mail on that is mixed. I was told of some 
+comments before I came into this news conference of the leader of the 
+military faction in the Indonesian Assembly and he was making utterances 
+to the effect that it wasn’t worth the effort to hang onto East Timor. 
+And I think he was also talking about the possibility of the accountability 
+speech being brought forward which you as a student of Indonesian affairs 
+would know has particular ramifications and implications. It’s very 
+mixed. I find it hard to believe that cool reflection by people in Indonesia 
+would cause them to do other than want to ultimately accept the result 
+of the ballot. And certainly when the ballot was first held the President 
+said that he accepted it. But it is also true, as you know, that the 
+President was ahead of opinion in Jakarta in allowing the ballot to 
+take place. And I say again that he deserves a lot of credit for having 
+done that. And it is ironic that in all that has happened the credit 
+that is due to him as a consequence is not being extended. I think it’s 
+very hard to be definite. Different people have different views. I don’t 
+think it’s possible to speak of a unified TNI Indonesian defence view. 
+It is probably disparate and disaggregated. There are probably some 
+people who have one view and others who have a different view.
+
+  
+
+  JOURNALIST:
+
+  
+
+ You said that our security treaty with Indonesia was 
+virtually useless or seems useless at this point, how would you describe 
+the relationship as a whole?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ Well, the relationship is obviously under strain, 
+of course it is. But, no, well, once again, you never use absolutes 
+in a situation like this because changes in personnel at the top, changes 
+in governments, passage of time, can alter a relationship. Obviously 
+it’s under strain at the present time but there are some enduring 
+characteristics about the relationship that mean that with the passage 
+of time and perhaps some change of personnel the situation will be different. 
+But we have to deal in present day realities. We have no argument with 
+the people of Indonesia and I say to the people of Indonesia and the 
+Government of Indonesia that we continue to seek a close and productive 
+relationship but it has to be on the basis that if we have a difficulty 
+with something then we have a right to give expression to that difficulty, 
+and we have a right to act in relation to that difficulty. I don’t 
+think anybody can say that we haven’t tried to be understanding of 
+the Indonesian position. We’ve been very understanding of the Indonesian 
+position. But we’ve had a ballot in East Timor. It was supervised 
+by the United Nations. Everybody says it was open and clean. The President 
+said he would accept it and it was a general feeling around the world 
+that it ought to be accepted. I think our reaction is perfectly natural 
+and perfectly normal, and nothing more indeed than what the Australian 
+people would have expected. Now we don’t want an ongoing argument 
+but as I said last night - it’s more important to do the right thing 
+than to preserve a relationship at any cost. And we can’t do that 
+and we are trying to balance the long term interests this country has 
+in a stable relationship with Indonesia against our clear duty to the 
+people of East Timor, our clear obligation to the things that we believe 
+in as a nation to argue that full faith and credit and expression should 
+be given to the result of that ballot.
+
+  
+
+  JOURNALIST:
+
+  
+
+ Is the government considering sanctions?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ In a word at the moment no, but also in another word, 
+they’re very much on the table. So I don’t rule something like that 
+out. But at the moment the focus is on what I’ve talked of.
+
+  
+
+  JOURNALIST:
+
+  
+
+ Are the consul staff remaining in the compound in 
+Dili and how can the government ensure that food and water get into 
+the compound vicinity?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ Well as of this morning water and food was coming 
+through from local sources apparently without difficulty. The Australian 
+Government could ensure that it got through by flying supplies in. We 
+would require the cooperation or the acquiescence of the Indonesian 
+authorities once those supplies reached the airport.
+
+  
+
+  JOURNALIST:
+
+  
+
+ And how much cooperation...
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ Well there’s not been any need to find that out 
+at the moment because it’s still available locally.
+
+  
+
+  JOURNALIST:
+
+  
+
+ Do you know if they are safe and where they have gone?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ Well no, I can’t answer either of those questions. 
+I don’t think anybody from here can do that. I don’t know the answer 
+to that question. We have no way of finding that out.
+
+  
+
+  JOURNALIST:
+
+  
+
+ You mentioned earlier of a possible commitment of 
+4,500 Australians. Have you got a similar commitment from New Zealand?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ Well New Zealand has made a commitment of some hundreds.
+
+  
+
+  JOURNALIST:
+
+  
+
+ If the situation doesn’t...
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ Well what I said was there appears to have been some 
+stabilisation. I did not say I don’t think that it has improved or 
+continued to improve. I mean, all I’m saying is there appears to have 
+been some stabilisation.
+
+  
+
+  JOURNALIST:
+
+  
+
+ If the UN ultimately decided it had to pull out, would 
+Australia assist in an evacuation of locally employed 
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ Well it has always been our intention to help in relation 
+to that.
+
+  
+
+  JOURNALIST:
+
+  
+
+ [inaudible] to come to Australia?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ Well obviously they’re being evacuated to Darwin. 
+Of course. But at this moment the UNAMET presence is being maintained.
+
+  
+
+  JOURNALIST:
+
+  
+
+ [inaudible] So these reports from...
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ Reports from where?
+
+  
+
+  JOURNALIST:
+
+  
+
+ [inaudible]…that Australian consulate staff...
+
+  
+
+  PRIME MINISTER:
+
+  
+
+  Look I don’t know anything about that.
+
+  
+
+  JOURNALIST:
+
+  
+
+ The UN says it has confirmed the massacre indicates 
+that…100 people that’s…and priests and nuns. Are you aware of 
+this?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ I am aware of those reports and I am aware of that 
+comment. I’m not directly aware of the circumstances. If that is true 
+than that is an appalling event and it adds weight to the sense of international 
+concern and the sense of concern that is felt within Australia. I mean 
+nobody’s pretending that ugly things aren’t occurring in East Timor. 
+It’s a question of what we can sensibly try and do as a nation of 
+19 million people close by, in cooperation with other countries, always 
+in cooperation with other countries, and under the general benediction 
+of the United Nations. It’s a question of what we can sensibly try 
+and do. I mean I know that it’s a terrible situation, quite appalling. 
+And atrocities have occurred. We know that. Now I’ve never pretended 
+otherwise. It’s a question of what we can effectively do. I know everybody 
+wants to do something and that’s a very natural laudable human reaction. 
+But it’s a question of what is a sensible, achievable, relatively 
+safe response because I have responsibilities to the lives of Australian 
+servicemen and women and I’m not going to lightly commit them to a 
+disproportionately unsafe situation.
+
+  
+
+  JOURNALIST:
+
+  
+
+ Has General Wiranto answered the phone yet...?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ I’m not aware of any contact between Mr Moore and 
+him no.
+
+  
+
+  JOURNALIST:
+
+  
+
+ …has there been any contact with the Australian 
+government with companies in relation to possible sanctions?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ Not that I’m aware of no, no. Look everything is 
+on the table but I answered a question on that a moment ago and that 
+is we are not planning anything right now in relation to that. But everything’s 
+on the table.
+
+  
+
+  JOURNALIST:
+
+  
+
+ The ordinary Australian public are now angry about 
+what is going on. What’s your advice? There’s all sorts of ideas 
+about trade embargoes, and union bans and so on. What’s a sensible 
+response from the Australian people that...
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ Well there’s no one single response. I don’t presume 
+to tell the Australian people how to react. I understand how they feel 
+and what I’m trying to do as Prime Minister is to have a right, sensible, 
+feeling response, but one that recognises that there’s nothing to 
+be achieved by committing Australian men and women to unreasonable and 
+disproportionate risk and danger. We are willing to participate in a 
+peacekeeping force. We’re willing to play a major role, we’re willing 
+to lead it. We’re willing to make the commitments in the numbers that 
+I’ve outlined. But we want United Nations’ approval, we want Indonesian 
+acquiescence, and we want a reasonable degree of participation from 
+appropriate countries. Now we’re making a lot of progress in relation 
+to the last element. The United Nations will clearly give the blessing 
+if it’s needed but thus far there is clear resistance being met in 
+relation to the Indonesian position. Now the whole purpose of international 
+argument and pressure is to persuade the Indonesians of the benefit 
+for them as well as the benefit for others of them either getting the 
+situation properly under control or standing aside and allowing others 
+to do it. Now that is where we have been for some days and that is what 
+I must focus on. The question of whether you can have a trade ban or 
+whatever, I mean in the short term that’s not going to make one wit 
+of difference to what we’re dealing with at the moment. I don’t 
+rule out action on that front but right at the moment we think our efforts 
+are best directed towards achieving progress in the areas that I’ve 
+mentioned.
+
+  
+
+  JOURNALIST:
+
+  
+
+ How important is it that close neighbours like Malaysian 
+and Thailand…closer to the idea of joining…peacekeeping force.
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ It would clearly be very helpful to have the involvement 
+of countries like that. It is my understanding that from both sources 
+there’ve been indications of support. How well that materialises we’ll 
+know probably over the next few days. But bear in mind that we’re 
+not dealing with a situation where we’re trying to assemble a police...peacekeeping 
+force for injection into the situation in the next 24 or 48 hours. That’s 
+just not feasible.
+
+  
+
+  JOURNALIST:
+
+  
+
+  Mr Howard, if the UNAMET compound needs to be evacuated would troops 
+be…?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+ Look, I’m not going to deal in hypothetical situations. 
+I’ve explained patiently my understanding and knowledge of the UNAMET 
+position. I’m not going to go beyond that. I think we’ve had enough. 
+I think you’ve done extremely well.
+
+  
+
+ Thank you.
+
+  
+
+  
+
+  md 1999-09-13  09:17
+

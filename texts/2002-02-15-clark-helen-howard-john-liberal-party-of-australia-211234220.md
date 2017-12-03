@@ -1,0 +1,399 @@
+---
+title: "Prime Minister's joint press conference with the Right Hon Helen Clark MP, Prime Minister of New Zealand: Australia/New Zealand relations; trade agreements with the US; Kyoto Protocol;\npeople smugglers; children overboard allegations."
+date: "2002-02-15"
+creators:
+  - "Clark, Helen"
+  - "Howard, John"
+  - "Liberal Party of Australia"
+source: "PRIME MINISTER"
+subjects:
+trove_url: http://trove.nla.gov.au/version/211234220
+source_url: http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/5HX56%22
+---
+
+ 15 February 2002
+
+ TRANSCRIPT OF THE PRIME MINISTER THE HON JOHN HOWARD MP JOINT PRESS CONFERENCE WITH THE RIGHT HON HELEN CLARK MP PRIME MINISTER OF NEW ZEALAND
+
+ Subjects:  Australia/New Zealand relations; trade agreements with the US; Kyoto Protocol; people smugglers; children overboard allegations.
+
+ E&OE…………………………………………………………………………………...
+
+ PRIME MINISTER HOWARD:
+
+ Ladies and gentlemen, I’ll just make some short opening remarks and invite the New Zealand Prime Minister also and there may be one or two questions people want to ask me about domestic Australian political matters.  Can I suggest that we deal with Australian/New Zealand matters first and then as a matter of courtesy let the New Zealand Prime Minister depart for a few moments and then I’ll deal with those questions.
+
+ We have had our regular bilateral discussions and I can say that the relationship between our two countries has never been in better shape.  Both Helen Clark and I have worked very hard as I did with her predecessors, Jim Bolger and Jenny Shipley, to remove needless irritants in the relationship.  It’s a very, very important one for me and for the Australian people.  And whilst we inevitably between two nations we don’t agree on everything our broad approach to most issues is very much the same.  I welcome the assistance that New Zealand provided in relation to asylum seekers.  We have talked about the upcoming people smuggling summit in Bali.  We have broadly similar approaches to that, the desirability of having a regional agreement.
+
+ I have spoken to Helen about my discussions in the United States and Indonesia.  We have talked about the future of East Timor.  As far as the direct bilateral relationship is concerned I can say that any of the reported differences between Australia and New Zealand over Air New Zealand and Ansett are now things of the past.  We’re looking very much forward to the future in relation
+
+ PRIME MINISTER
+
+ 2
+
+ to that and I can overall say that our relationship has never been in better shape and I have appreciated very much the opportunity I have had of meeting the Prime Minister here today.
+
+ PRIME MINISTER CLARK:
+
+ I’d describe today’s meeting as a catch up.  I last saw Mr Howard at the APEC conference in Shanghai, there’s been an election here since then and a lot of issues we are working very closely on.  We’ve had a chance today to talk about the forthcoming regional meeting in Indonesia on the people smuggling issue and we are both keen to find regional solutions to that.
+
+ We’ve had a catch up today on respective approaches to trade agreements with the United States. We have had an opportunity to review the post-September 11 environment and our involvement in the international effort against terrorism and we have been able to talk about the bilateral economic and other relationships as well.  So it’s been a good catch up.
+
+ JOURNALIST:
+
+ Mr Howard, do you agree with the attitude of your Government, some of your ministers [inaudible]….
+
+ PRIME MINISTER HOWARD:
+
+ Oh I think some of those remarks attributed to my Ministers were misunderstood.  I mean, in particular Helen and I discussed some remarks that had been made by Philip Ruddock and it was very clear that what he had said had been misinterpreted/misunderstood.  That’s not a problem. We are not troubled by that at all.
+
+ JOURNALIST:
+
+ There’s no disputing the strength of the criticism [inaudible]…
+
+ PRIME MINISTER HOWARD:
+
+ Well, there’s no disputing the misinterpretation of Mr Ruddock.  Look, as far as Defence spending is concerned, our position is that what New Zealand spends on Defence is a matter for New Zealand.  In the six years I have been Prime Minister I have never presumed to give public lectures to New Zealand about how much she should spend on Defence.  That is her business, she makes a defence investment obviously we like to see it robust but the level of it is a matter for New Zealand.  And every country makes decisions abut defence expenditure mindful that whatever is spent on defence it has consequences because it defines the role and the activities of the country in the international arena.  But I can only say this that in recent years, in the case particularly of East Timor, New Zealand has made a wonderful contribution.
+
+ JOURNALIST:
+
+ [Inaudible]
+
+ PRIME MINISTER CLARK:
+
+ 3
+
+ I think there has been a lot of headlines that aren’t very helpful.  As Mr Howard said, we’re entirely satisfied that Mr Ruddock’s remarks as reported were not what was meant.  And in the case of the comments by Senator Hill, let me just say this is my 21st year in the New Zealand Parliament and I have never known an Australian Government of any shade that didn’t think that the New Zealand Government of all shades spent too little on defence.  That is going to be a longstanding difference.  We spend what we can afford and what we think is justified and I accept it will probably never be seen as enough here but that’ll be a friendly disagreement that we always have.  Overall, we have a very, very close relationship and the tone of today’s meeting certainly reflects that.  And I, my aim as Prime Minister has been to get a very constructive relationship and not have Trans-Tasman slanging matches.  If I can keep that tone I will be very happy.
+
+ JOURNALIST:
+
+ Mr Howard, why has Australia chosen to take a direct approach to the US rather than a CER based approach on a free trade agreement.
+
+ PRIME MINISTER HOWARD:
+
+ Well, there’s nothing in CER that obliges either country to pursue international agreements on a joint basis.  That’s a misunderstanding of CER.  Getting a free trade agreement with the United States is going to be difficult.  We discussed this issue today and we have agreed to collaborate very closely in the exchange of information in keeping each other in the picture but of necessity in the time ahead we’ll pursue separate negotiations.  It’s going to be very difficult and both of us agree that that is the appropriate course to take.
+
+ PRIME MINISTER CLARK:
+
+ I want to underline that.  It is difficult, there are strong protectionist tendencies in America in areas where we would both like to see trade opened up.  For New Zealand it’s dairy and lamb in particular, for Australia it’s beef, it’s wheat, it’s steel.  We have got slightly different issues.  We are both making our own approaches, we are liasing very, very closely about the respective discussions we are having with the United States.  It may be that at some time down the track the approaches come together but I don’t think either of us are under any illusion that negotiations are about to begin for either of us.
+
+ JOURNALIST:
+
+ Ms Clark, can you outline the discussions that took place this morning on the refugee situation…
+
+ PRIME MINISTER CLARK:
+
+ Well, what we are looking for is a meeting of minds at the regional meeting in Indonesia as to how to deal with the accumulated numbers of people who have ended up there seeking asylum. Some of whom are genuine refugees and will have to go somewhere.  New Zealand is prepared to look at how it accommodates some of those people within its refugee quota and it may be that the most helpful way we can contribute is to now start directing much more of our quota to those who are hanging around in Indonesia.  That in itself inhibits the kind of mad dashes on small boats across the sea which Australia has been attempting to combat.
+
+ 4
+
+ PRIME MINISTER HOWARD:
+
+ Any more questions?
+
+ JOURNALIST:
+
+ [Inaudible] election year in New Zealand, did you share with Ms Clark any tips  [inaudible]…
+
+ PRIME MINISTER HOWARD:
+
+ Oh look, I think she is a very experienced politician and I think she has very considerable skills. I don’t involve myself in any domestic New Zealand political matters.  I mean, one of the things that has characterised the relationship between Helen and myself is that although it’s self-evident we come from different sides of the political fence we play by the rules and we respect each other and we work together because our greater responsibility is to the people of New Zealand and Australia to ensure that there is a good relationship.  It is a very precious relationship to me, to the Australian people. We’ll always be very close and I have an obligation as my predecessors did and my successors will to build the relationship as closely as possible and I take that very much to heart and it will always govern my dealings with the Prime Minister of New Zealand.
+
+ PRIME MINISTER CLARK:
+
+ In my political lifetime I’ve seen very bad relationships between New Zealand and Australian prime ministers.  And I came to office determined that I didn’t want to be part of a bad relationship, I wanted to be part of a constructive relationship with the Australian Prime Minister of the day, whoever it was, and the relationship has been with John Howard throughout my time in office and in my view it’s been a very positive one.
+
+ JOURNALIST:
+
+ Mr Howard what’s your view on George W Bush’s outline of his idea (inaudible)?
+
+ PRIME MINISTER HOWARD:
+
+ Well I think it is a real step forward. Clearly there are a lot of differences around the world on this issue.  Our position is not identical to that of the United States but it is much closer to that of the United States than the attitude of the European countries.  Our view is that it would not be in Australia’s interests to ratify the Kyoto Protocol unless and until it includes the Unites States and the developing countries. Now that is based very much on an assessment of Australia’s national interest.  We are a net exporter of energy and unless you have the developing countries involved we would be hurt. But I do think what the President indicates today in his speech is that the Americans have taken seriously the need to develop an alternative to simply saying no to the Kyoto Protocol.  And I welcome that, I think it is a very positive thing.  It will attract its critics from Europe but then Europe is coming at this from a different, and may I say from a negotiating point of view a rather more privileged position because they’ve in effect been able to set the rules which take account of changes that have already occurred in the structure of their economies and of their industries. But I think it was a very positive development, the President’s speech and it goes some way towards a significant American contribution to emissions
+
+ 5
+
+ reductions and that’s very welcome. Our position remains the same and that is that we would like to see the Americans and the developing countries in because self evidently without them Australia would be hurt by ratifying the protocol.
+
+ JOURNALIST:
+
+ Mr Howard do you have an apology to offer any Australians that may have changed their vote…
+
+ PRIME MINISTER HOWARD:
+
+ I think that relates to another matter and we might let the New Zealand Prime Minister go.
+
+ JOURNALIST:
+
+ Mr Howard when you spoke to Mr Reith on November 7th (inaudible) specifically speak to you about the veracity of the claims that, the veracity of the claims that the children had been thrown overboard.  Did you ask him about it?
+
+ PRIME MINISTER HOWARD:
+
+ I have already said on numerous occasions  that I spoke to Mr Reith on the 7th of November and I don’t have anything to add to what I’ve said. I stand by what I’ve said and can I just say that I’ve just read a transcript of Mr Reith’s interview on 3AW in which there is no surprise to me he repudiates the story in the Australian this morning. Of course Mr Reith spoke to me.  I indicated to the Parliament yesterday what, amongst other things, were the subject of the discussions I had with Mr Reith and I did an extensive interview this morning on 3AW and the discussion I had with Mr Reith on the night of the 7th of November was about a number of things. It was about the video, I think in fact I may have had two discussions with him that night.  I can’t remember how many and I don’t think anybody could expect me to remember precisely how many. But I have a clear recollection of two issues being discussed, one of them related to the video and one of them was a general inquiry as to whether there had been any indication that the original advice was wrong. And let me just quote what Mr Reith said, “what he has said”, and he’s referring to me, “on the public record is my sort of basic memory of what happened and I have said all of these things before, I’m not just going on repeating myself for the sake of people who don’t want to hear what I’ve got to say.”  Now they’re Mr Reith’s words and what’s he’s doing is saying that what I have said about the conversations I had with him were his basic memory of the position.  And  that doesn’t surprise me at all.  I clearly would have spoken to Mr Reith on a number of occasions about these matters.
+
+ JOURNALIST:
+
+ Did you ask specifically are the claims true or false?
+
+ PRIME MINISTER HOWARD:
+
+ I never said that’s what I said to him.  What I have said in the past is that I’d sought advice as to whether any contradiction of the original advice had been received and I’ve said in the past that the answer to that was in the negative.
+
+ 6
+
+ JOURNALIST:
+
+ Mr Howard, also I believe you spoke to a senior defence adviser Mike Scrafton that night?
+
+ PRIME MINISTER HOWARD:
+
+ I did yes.
+
+ JOURNALIST:
+
+ And did you talk to him about the doubts …
+
+ PRIME MINISTER HOWARD:
+
+ No, that was entirely about the video.  I had no reason to doubt the story.  And what…. I’d spoken to Peter, it was the night before the final Press Club and I was at the Lodge and there were a number of my staff there.  They verified to me that I had spoken to Mr Reith, they weren’t physically present to hear my side of the conversations, I think they were in another room.  But they have a very clear recollection of it and I discussed with him the question of the video and he gave a report of what Scrafton had said to him and I questioned, and he said why don’t you ring Scrafton and have a yarn with him because, he said, it’s Scrafton who’s seen the video, Peter hadn’t.  So I did ring Scrafton and to the best of my recollection I asked him what the video depicted and he gave me a report and the impression I had was it was inconclusive about the, as to whether it contained evidence of children being thrown overboard.  Bearing in mind that you could have had a situation where the video was quite inconclusive but the incident may have occurred or not occurred.  And then we decided to release the video and I think I may have said to him and I subsequently repeated it that people would have to make their own conclusions, draw their own conclusions as to what the video suggested.
+
+ JOURNALIST:
+
+ Mr Howard, do you find it credible that there are these wide spread doubts about the veracity of the initial advice in the public too, that no one (inaudible) to you.  And in particular did you have any conversations about this, the veracity of the original advice with the head of your department Max Moore Wilton.
+
+ PRIME MINISTER HOWARD:
+
+ No, I don’t recall having had any discussions, in fact I’m certain I didn’t because I had no reason.  You say can I understand, Jenny what you have to do is to put yourself back into the circumstances that were around at the time these things occurred.  I mean it’s the only game in town at the moment media wise and politically but it wasn’t the only game in town, and we moved on.  I mean it went out… after the 7/8/9/10th - that period, when I took questions on it, it quite honestly went out of my mind and I don’t recall, I mean I can’t certify to this because I haven’t checked the transcript of every speech I’ve made so I want to say that very carefully in case anybody comes back and says oh no that’s not right. But I can’t recall having raised the issue myself in a speech after the 10th of October and I’ve checked my transcripts of media interviews and between the 10th of October and the 26th of October there’s no reference to the issue at all.  So I just, I mean that doesn’t prove anything except that it wasn’t the top of mind
+
+ 7
+
+ issue that people are now, for their own political purposes saying it clearly was.  I mean it wasn’t dominating debate on asylum seekers.  There was a lengthy exchange during the debate between Kim Beazley and myself on Channel Nine, The Debate, there was a lengthy exchange about border protection. I don’t remember any reference being made in that debate about children overboard. I mean the people voted for us on border protection because they agreed with our policy, not because of the allegations about children overboard.
+
+ JOURNALIST:
+
+ But it was a very potent issue in the ….
+
+ PRIME MINISTER:
+
+ Well Jenny I mean different people will have different views about the potency of a particular aspect of an issue. But I can only repeat, the original statements I made were based on advice. That advice was unambiguous, it was not subsequently contradicted and I did not have any material before me or any suggestions before me that would have reasonably caused me to seriously question the veracity of that advice. Now in those circumstances, I mean people may say that is hard to believe, I think people will say that, I mean this is an issue where quite, I mean, self evidently the bulk of the broadsheet media and most media commentators with some exceptions are very hostile, openly hostile to the Government’s position and clearly, I mean I think that report in the Australian this morning about what Mr Reith said in the light of what I know of the conversations between him and me and the commonsense of it, I mean it is absurd to imagine that the Defence Minister and I would not have spoken about this issue. I think that report particularly in the light of Peter’s denial is quite outrageous.
+
+ JOURNALIST:
+
+ Prime Minister, on the 23rd of January, [inaudible] and three days before the South Australian election, your Government also made claims that detainees in Woomera had forced their children to sew their lips together. Now those allegations have also been found to be false by the Department of Human Services in South Australia. Will you now apologise to the parents in Woomera [inaudible]?
+
+ PRIME MINISTER:
+
+ Well I’m not aware that the Department of Human Services has now found those allegations to be untrue. I am aware, I am aware that the Human Rights and Equal Opportunities Commission said that in its discussions with people it had not been provided with any evidence. The original action was taken on the basis of a report from the Department of Human Services. That was the original action, and therefore I don’t see any need to apologise because, I mean if you get into a situation now where a minister gets a report from his department and takes action on the basis of that report and subsequently it is called into question by a separate body. Now I’m not aware that the Department of Human Services has contradicted its previous advice. That is news to me.
+
+ JOURNALIST:
+
+ Mr Howard did you at any time during the election discourage [inaudible] colleagues or public servants to advise you on the facts of the children thrown overboard…?
+
+ 8
+
+ PRIME MINISTER:
+
+ Discourage officers ?
+
+ JOURNALIST:
+
+ Did you not want to know.
+
+ PRIME MINISTER:
+
+ No. Why would I do that?
+
+ JOURNALIST:
+
+ Because it may not have fitted with the….
+
+ PRIME MINISTER:
+
+ Well see there….that’s the mindset you bring to the question. Well the answer’s no. The answer’s no.
+
+ JOURNALIST:
+
+ Mr Howard, what was your response of seeing the reported conversation in The Australian [inaudible]?
+
+ PRIME MINISTER:
+
+ My reaction? I was amazed.
+
+ JOURNALIST:
+
+ Do you recall [inaudible] from your office…?
+
+ PRIME MINISTER:
+
+ There was a discussion between somebody in my office yes and Mr Reith mentioned that this morning. Well self evidently we couldn’t understand it.
+
+ JOURNALIST:
+
+ Did you ask him….[inaudible]
+
+ PRIME MINISTER:
+
+ Why not….I beg your pardon, did I ask Mr Reith to go public? No I didn’t.  No I didn’t ask Mr Reith to go public. He did that of his own volition. But I mean I make no bones about it. When I picked up the Australian this morning I couldn’t believe my eyes because I knew the report to be
+
+ 9
+
+ in fact wrong because I know who I speak to, I know when I’ve spoken to the Defence Minister, I knew that I’d spoken to him on the 7th of November, I knew that I’d spoken to him on the 10th of October, and I just couldn’t believe that story in the Australian this morning.
+
+ JOURNALIST:
+
+ Do you regard his comments on 3AW as a complete denial….[inaudible]
+
+ PRIME MINISTER:
+
+ Yes I do, I do.
+
+ JOURNALIST:
+
+ Mr Howard, have you spoken to Max Moore-Wilton about this issue, [inaudible], why didn’t he do more to alert….?
+
+ PRIME MINISTER:
+
+ Of course I’ve spoken to the head of my department about it and there’s nothing that he’s told me that would cause me to alter in any way anything that I’ve said. But in relation to his position and that of other people in my department it is likely that they will be called before the Senate and it’s the normal practice for public servants if they are called to the Senate to appear. I won’t try and stand in the way of normal custom because I don’t have anything to hide and I’ve said to him and I’ll say it publicly to any public servant or any defence personnel who are called before the Senate inquiry I encourage them to tell the whole truth and nothing but the truth, and I have absolutely nothing to be concerned about in relation to that because I’ve told the truth in relation to this issue. I think the Senate inquiry will be politically motivated but it will happen because the numbers are there for it to be established and I respect the processes that are involved. In the past public servants who have been summoned and others in that position who have been summoned are obliged to attend. I won’t try in any way to depart from the conventions that apply in relation to appearances before Senate inquiries. And in those circumstances I simply say to the public service, to any of them, I say if you are required to appear you must appear and my only advice to them is to tell the truth.
+
+ JOURNALIST:
+
+ In relation to the asylum seeker [inaudible] children overboard, defining moment [inaudible]. Do they deserve an apology for what they were led to believe before polling day?
+
+ PRIME MINISTER:
+
+ Well that is an entirely hypothetical question. You say if it’s a defining moment. I mean I’ve already expressed a view to you that what was, on the asylum seeker issue, defining to people was whether they agreed with our tough policy on border  protection or they didn’t. That’s what people voted on.
+
+ JOURNALIST:
+
+ 10
+
+ [inaudible]
+
+ PRIME MINISTER:
+
+ Yeah well I mean you’re offering me a view which you are entitled to have. You’ve asked me a question, your question was hypothetical. I’ve put it in the context of how I see the issue.
+
+ JOURNALIST:
+
+ Mr Howard,  you questioned the potency of the pictures a few minutes ago. You said it was up to the public to decide how potent those images were.  Surely there’s no stronger issue than…..
+
+ PRIME MINISTER:
+
+ No I was talking about the video. The video’s different from the pictures.
+
+ JOURNALIST:
+
+ Do you acknowledge that….?
+
+ PRIME MINISTER:
+
+ Well I mean I’m sorry your question is not right. I mean the video…what I was talking about of people making up their own minds that was the video, it was not the photographs.
+
+ JOURNALIST:
+
+ [inaudible] the pictures were….
+
+ PRIME MINISTER:
+
+ The question was not about that. The question was about my discussion with Mr Reith and Mr Scrafton on the night of the 7th of November and the subject matter of that discussion was the contents of the video and what it indicated. And what I said let me repeat is after discussing it with Mr Scrafton, he expressed a view… he described what it showed, he said it would be inconclusive as to whether people thought it showed, you know, provided evidence of people being thrown over. I mean that was his view. I hadn’t seen it and I was relying on what he said and the decision, I mean I had formed the view by then that the video ought to be released and of course it was released.
+
+ JOURNALIST:
+
+ Mr Howard, did Max Moore-Wilton tell you when he learned about the doubts about the original advice to you and what he did to pursue that?
+
+ PRIME MINISTER HOWARD:
+
+ He wasn’t aware of anything that was covered in that report until after it sort of emerged in the inquiry.
+
+ 11
+
+ JOURNALIST:
+
+ So during the election campaign…[Inaudible]
+
+ PRIME MINISTER HOWARD:
+
+ No, he didn’t.  He did not say anything…he did not at any stage during the election campaign, let’s be clear about this, at no stage during the election campaign did Max express to me in any form or shape any view that the original advice was wrong.
+
+ JOURNALIST:
+
+ But did he have that view?  I mean, did somebody…
+
+ PRIME MINISTER HOWARD:
+
+ No, he didn’t.  He subsequently told me he didn’t have that view until later.
+
+ JOURNALIST:
+
+ Prime Minister, what do you think of opinion polls which are showing [inaudible]
+
+ PRIME MINISTER HOWARD:
+
+ Well, I mean, opinion polls go up and down and Morgan doesn’t have a very good track record in recent times.  Look, I would expect that some people would…I accept that on something like this and particularly when you have political division in the country that’s more or less 50/50, people tend to follow the party of their own allegiance and, you know, on something like this Labor supporters would tend to agree with Simon Crean and Liberal supporters would tend to agree with me.  But look, no Prime Minister worth his or her salt is going to be governed from day-to-day by opinion polls and I think a lot of people in your profession from time to time say that I shouldn’t be influenced by opinion polls.  So I think I’ll take your advice on this occasion and not be influenced by anything the polls say.  I can only speak the truth and the truth is that I was not told that the original advice was wrong.  That’s a finding and nothing that will happen over the weeks ahead is going to alter that because it’s true and I wouldn’t be saying it otherwise. I haven’t lied to the Australian people about this and I don’t intend to change in the future.  The statements I made on the 7th and 8th or 9th of October were based on the advice we had received and I think that advice was tendered in good faith and it was used in good faith.  Subsequently, as the reports now reveal, there were exchanges at a departmental level.  The report discloses why the Department of Prime Minister and Cabinet didn’t take the matter further after the photographs had been released.  And it’s the report itself that says I wasn’t told.  You don’t have to accept my assurance on that, go and look at the report.  I mean, if it’s good enough to accept what the report says about the doubts being communicated further down, if you accept that because it’s in the report, why don’t you accept the report’s finding that I was never told by my Department and Mr Ruddock was never told by his.
+
+ JOURNALIST:
+
+ 12
+
+ [Inaudible] should be disciplined?
+
+ PRIME MINISTER HOWARD:
+
+ Well, I was asked about the attitude I had towards my Department and, indeed, public servants generally on Neil Mitchell this morning and I expressed a view that given that they have to appear, are likely to appear before a Senate inquiry I don’t think it’s fair to them for me to be expressing a view about their behaviour in relation to this matter.  I think that could be…it would be unfair to them because they’ll be asked questions and I think it’s better that, beyond repeating what I’ve said this morning, it’s better I not say anything further except to make the general observation that I could well understand in the nature of the hurly burly of a difficult situation like this, I can well understand how different versions of events can emerge, I can well understand that.
+
+ JOURNALIST:
+
+ Do you think it suggests public servants were too nervous to tell their Ministers [inaudible]
+
+ PRIME MINISTER HOWARD:
+
+ No, no I don’t think it suggests that at all.  I think this argument that in some way the military has been politicised is absurd.  The military and the public service has not been politicised on this issue.  This is a very difficult issue and it’s an issue where there is enormous hostility to the Government in many sections of the media as evidenced by what I think is a quite outrageous headline in The Australian this morning but different views within the community.  I think the public service is doing its best in a very difficult situation and what I mean by that is that this is a difficult situation for the country.  I don’t enjoy the fact that we have to have people in mandatory detention.  Anybody who thinks I like that is wrong.  I don’t like it at all.  But at the moment there isn’t an alternative and if there was an effective national interest alternative then it would have been embraced by me a long time go, Jennifer, and I don’t like this at all but I don’t believe there’s any alternative and I don’t intend to be deflected from the maintenance of this policy by a very strong campaign. Now, can I say again what I’ve…the remarks I made about the children overboard were based on advice I had and they were justified by that advice.  A few days after I’d made the initial remarks I stopped talking about the issue myself and I only returned to it in response to questions.  And you will recall on the eve of the election campaign doubts arose about the photographs and the video and the juxtaposition of  the photographs to the alleged children overboard incident and the sinking of the vessel the following day.  Now, that was the context in which all of that material arose and I dealt with that and it’s in the context of that that I’ve made the comments.
+
+ Now, I regret obviously that, you know, in the light of what’s emerged that that information wasn’t available at the time but it wasn’t and I understand why it wasn’t.  It doesn’t alter the fact, though, that I wasn’t told.  And in the end, I mean, people are playing fast and loose with my reputation.  Newspaper headlines contain words like ‘lie’.  A lie is when you deliberately state something to be untrue or you deliberately omit something that you ought to tell people.  Now, I have not been guilty of either of those offences and quite understandably I have a strong view about it.
+
+ JOURNALIST:
+
+ 13
+
+ [Inaudible] was fairly unambiguous, why do you think Mr Reith [inaudible]?
+
+ PRIME MINISTER HOWARD:
+
+ Look, I don’t know.  I did not ask the question.  I’m not going to say it was unambiguous.  All I can say is that that headline was to me an amazing headline given my sure…
+
+ JOURNALIST:
+
+ [Inaudible]
+
+ PRIME MINISTER HOWARD:
+
+ You asked a question, let me finish it.  My sure and certain knowledge of having had discussions with Mr Reith.  I mean, to suggest, as one of the questions and the answer did in The Australia that they had no discussions, that Mr Reith and I had had no discussions about this matter, I mean, that is the most self-evidently absurd bit of media commentary on this whole thing.  I mean, we would be absolutely failing in our duty if we hadn’t discussed this matter between ourselves.
+
+ JOURNALIST:
+
+ Prime Minister, on October the 10th at a press conference the question was put to you that doubts had been raised [inaudible] that you [inaudible]
+
+ PRIME MINISTER HOWARD:
+
+ I dealt with that in the House yesterday.  That was the question that provoked my discussion with Mr Reith that day from Ballarat about the release of the photographs.  Okay.
+
+ JOURNALIST:
+
+ And then a whole month went by.
+
+ PRIME MINISTER HOWARD:
+
+ Well, you say a whole month, yes, it did because as the report revealed the release of the photographs in the eyes of the officials in my Department indicated that there was no reason to maintain further doubt.  I mean, I’m not saying that, I’m just repeating what other people have said.  And of course a whole month went by.  It went out of my mind, quite honestly, because we were in the middle of an election campaign and I wasn’t asked any…
+
+ JOURNALIST:
+
+ [Inaudible]
+
+ PRIME MINISTER HOWARD:
+
+ 14
+
+ Well, I wasn’t asked…well, it was 16 days and I wasn’t asked any further questions.  Thank you.
+
+ [ends]
+

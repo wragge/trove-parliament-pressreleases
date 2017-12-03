@@ -1,0 +1,100 @@
+---
+title: "Transcript of press conference: Hua Hin, Thailand: 24 October 2009: East Asian Summit; Copenhagen summit; Bilateral meetings; Stern Hu; asylum seekers; possible upcoming visit to Australia by President Yudhoyono."
+date: "2009-10-24"
+creators:
+  - "Rudd, Kevin"
+  - "Australian Labor Party"
+source: "PRIME MINISTER"
+subjects:
+  - "East Asian Summit"
+  - "Copenhagen summit"
+  - "Bilateral meetings"
+  - "Stern Hu"
+  - "asylum seekers"
+  - "possible upcoming visit to Australia by President Yudhoyono."
+trove_url: http://trove.nla.gov.au/version/211330535
+source_url: http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/9C2V6%22
+---
+
+ 
+
+ 
+
+ 
+
+ Prime Minister  Transcript of press conference  Hua Hin, Thailand  24 October 2009 
+
+ 
+
+ Subject(s): East Asian Summit; Copenhagen summit; Bilateral meetings; Stern Hu;  Asylum seekers; Possible upcoming visit to Australia by President Yudhoyono  
+
+ PM: I'm here to attend the fourth East Asian Summit which, of course, begins here in  Thailand this evening. This provides a good opportunity for Australia to engage with our  friends and partners from across the region, bringing, of course, together the 10 nations of the  Association of South East Asian Nations and, of course, our three partners in north-east Asia,  together with, of course, our friends in India and New Zealand. 
+
+ This is an important gathering of economies and an important gathering of countries. Here at  this gathering we have heads of government representing nearly half the world's population.  We have here leaders representing economies which represent more than one-third of global  GDP. That's why our discussions tomorrow will focus on such critical international questions  as economic cooperation, particularly given the impact of the global economic crisis on both  developed and developing economies, climate change in the lead up to Copenhagen, response  to natural disasters, and of course the future of the region's architecture. 
+
+ On economic cooperation, we will be engaged in detailed discussions about the future  prognosis of global economic recovery and how uneven that is likely to be in various parts of  the world and as we seek to enhance our regional cooperation, to ensure that that path to  recovery is as smooth as possible. Challenges, however, are large. Asia represents a  significant part of the global economic recovery story. What happens here in Asia is of  critical relevance not just to those of us within the region, but of course the world at large,  and therefore this will be an important area for discussion in the next 24 hours because so  much of Australia's future economic growth and jobs growth depends on the future health of  these economies of the region. 
+
+ On climate change, we have less than six weeks or so to go before Copenhagen.   It is clear that we need to achieve the strongest possible outcome in Copenhagen. Australia is  one of the world's hottest and driest continents. Therefore, the economic consequences and  environmental consequences for Australia will be felt hardest and earliest compared with  most other countries around the world. 
+
+ That is why today I welcome the comments today by Prime Minister of Denmark, Prime  Minister Rasmussen. As host of the Copenhagen Conference, Prime Minister Rasmussen has  called on leaders to increase their engagement in the negotiations directly over the next six  weeks. 
+
+ He called for leaders' engagement at a direct and political level in order to increase political  momentum towards Copenhagen. Our view is that this is important to capture commitments  already made in an ambitious political statement at Copenhagen and to guide ongoing  negotiations towards a rapid completion of a comprehensive global treaty. 
+
+ As I have said on many occasions back in Australia, the road to Copenhagen is steep and it is  difficult. 
+
+ That is why it is important here, when we have so many critical economies represented - the  economies of China and India, the economies of Japan and Indonesia, and of course  ourselves, to discuss the obstacles which remain in the way on the road to Copenhagen and  how we can respond to the challenge which has been laid before us by the Prime Minister of  Denmark to achieve greater political momentum for negotiators in the period ahead. 
+
+ Thirdly, on natural disasters, I will be speaking with leaders directly about how we can better  respond to natural disasters within our region. 
+
+ We have been reminded of the impact of these in recent times. The Philippines, Vietnam and  Laos have been hit by typhoons that have left more than 1,000 people dead. We know the  impact which has now occurred in Indonesia, where we've had this tragic earthquake at  Padang, with some 1,100 people dead and many more, of course, injured. 
+
+ On top of this there is, of course, economic cost as well. In recent years the average annual  economic loss from cyclones has been some USD5.8 billion in the region, and floods from  some USD4.9 billion and earthquakes some USD3.2 billion 
+
+ These are large sums. Therefore it's important that we, as the leaders of regional  governments, enhance our coordination to a new level to respond more effectively to regional  disasters, national disasters, when they occur. 
+
+ Finally, on the question of the regional architecture itself, it is good that Australia is a  member of the East Asia Summit. For the future, Australia also will continue to speak in  direct support of our proposal for an Asia Pacific community. I thank the Prime Minister of  Thailand, Prime Minister Abhasit, for his kind invitation to address leaders on our proposal 
+
+ when we meet together for lunch tomorrow. This will provide an opportunity for us to outline  further our proposal, the reasons for it and the processes associated with it, including the one-and-a-half-track conference we are proposing to host in Sydney on this in December. 
+
+ On a bilateral level, I will also be meeting with the leaders of Korea, of Japan, of New  Zealand, and of the Philippines, and I've just now concluded a very useful discussion with  Premier Wen Jiabao of China which covered the full breadth of our bilateral relationship,  together with the important areas of regional and global cooperation we currently are engaged  in, as well as climate change. 
+
+ Also, we have agreed with our friends in China that the vice-Premier of China, senior vice-Premier Li Keqiang will visit Australia soon. The timing for that will be determined in the  period ahead. 
+
+ Over to you, folks. 
+
+ JOURNALIST: (inaudible) 
+
+ PM: Yes, in the discussion that I had with Premier Wen I indicated that we had continuing  consular matters which need to be resolved between our foreign ministries and this included  representatives of the Australian company Rio Tinto. 
+
+ JOURNALIST: (inaudible) any indications of how quickly his case might be resolved? 
+
+ PM: That's under continued and close discussion between the two foreign ministries. We  confirmed that that process was ongoing. 
+
+ JOURNALIST: Consular matters, what does that mean? Hu's not getting the kind of access  he needs, or- 
+
+ PM: Consular matters refers to any individual Australian who finds themselves in difficulty  with the laws of a foreign country, and of course that is the case with Mr Hu. As a  consequence, when I use that term it refers to the totality of the case and the totality of the  processing of it, which is the subject of intense and continuing discussion between our two  foreign ministries. 
+
+ JOURNALIST: Did you express (inaudible) 
+
+ PM: The details of the case are being prosecuted between the foreign ministries and the  foreign ministers. That is appropriately where those details are handled. My purpose in  raising these matters today was simply to highlight the fact this was a continuing matter of  concern to Australia and I will continue to do so in the future. 
+
+ JOURNALIST: Will you be talking to Malaysia and Indonesia about the asylum seeker  issue? 
+
+ PM: When I was most recently in Jakarta I had extensive formal bilateral meetings with both  the Indonesian and Malaysian heads of Government, the President of Indonesia, the Prime  Minister of Malaysia. We discussed, extensively, people smuggling cooperation there, and as  we meet during the course of this East Asia Summit I'm sure that, together with the other  forms of cooperation in transnational crime, including counter-terrorism, as well as the whole  breadth of our economic and broader political relationship, will be the subject of normal  discussion, but as I said, these were already the subject of formal bilaterals only several days  ago in Jakarta. 
+
+ JOURNALIST: There have been reports in the Australian media today of asylum seekers  being beaten in an Australian-funded detention centre in (inaudible) Is this a good outcome  for asylum seekers seeking refuge in Australia, being sent to a country that's not a signatory  to the UN Convention on Refugees? 
+
+ PM: Well, first of all, I've not seen those reports. Secondly, in terms of facilities with  Indonesia, my advice is they are subject to regular visitation by the IOM, the International  Organisation for Migration, including the provision of a range of services by the IOM,  including medical advice, but I'm unaware of the report to which you refer. 
+
+ JOURNALIST: (inaudible) 
+
+ PM: It's never been my practice in these sorts of discussions to reflect on the response by  other Governments. That's a matter, of course, to put to the other side. My responsibility is to  reflect the concerns on the part of the Australian Government. The discussion with Premier  Wen Jiabao covered the full, as I said, breadth of our bilateral relationship, which is strong  and in good shape. It covered also our continued work on a free-trade agreement with China.  It covered also our extensive and complex negotiations with China globally on climate  change, as well as, of course, the future of the East Asian architecture, including our proposal  for an Asia Pacific community, as well as the consular matters I've just referred to. 
+
+ JOURNALIST: (inaudible) could you be more specific about what exactly you will discuss  given that the Indonesian President (inaudible) next month, what exactly- 
+
+ PM: Firstly, as I said, we had extensive discussions in Jakarta only several days ago. Our  officials are in constant contact across the whole spectrum of people smuggling matters and a  whole spectrum of counter-terrorism matters and border security cooperation, and that's  before you go to the rest of the fabric of our bilateral relationship. On the question of the  President's prospective or possible visit to Australia, can I just say this - after President  Yudhoyono won the election back in July, as I indicated before, I telephoned him to  congratulate him. On that occasion I also extended to him an invitation to visit Australia.  That was way back in July, and since then our officials, I'm sure, engaged in identifying an  appropriate, mutually convenient time for that visit to occur. So far as I know we haven't  reached finality on that. 
+
+ OK folks, I've really got to go and put on my shirt.    
+
+  
+

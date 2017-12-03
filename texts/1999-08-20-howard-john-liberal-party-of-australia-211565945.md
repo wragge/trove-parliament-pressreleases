@@ -1,0 +1,442 @@
+---
+title: "Parliament House, Tasmania, 20 August 1999: transcript of doorstop interview [Tasmanian Government debt; privatisation of the Hydro; infrastructure funding; book assistance program]"
+date: "1999-08-20"
+creators:
+  - "Howard, John"
+  - "Liberal Party of Australia"
+source: "PRIME MINISTER"
+subjects:
+  - "Tasmanian Government debt; privatisation of the Hydro; infrastructure funding; book assistance program"
+  - "Tasmanian Government debt"
+  - "privatisation of the Hydro"
+  - "infrastructure funding"
+  - "book assistance program"
+trove_url: http://trove.nla.gov.au/version/211565945
+source_url: http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/PSD06%22
+---
+
+   
+
+  
+
+  
+
+  Media Release
+
+  Prime Minister
+
+  
+
+  20 August 1999
+
+  
+
+  
+
+  TRANSCRIPT OF THE PRIME 
+MINISTER
+
+  THE HON JOHN HOWARD MP
+
+  DOORSTOP INTERVIEW
+
+  PARLIAMENT HOUSE, TASMANIA
+
+  
+
+  
+
+  
+
+  JOURNALIST:
+
+  
+
+  Prime Minister, Treasurer Egan has…
+
+  
+
+  PRIME MINISTER:
+
+  
+
+  Who?
+
+  
+
+  JOURNALIST:
+
+  
+
+  Treasurer Egan in New South Wales…
+
+  
+
+  PRIME MINISTER:
+
+  
+
+  Oh, yeah, sorry.
+
+  
+
+  JOURNALIST:
+
+  
+
+  That’s all right.
+
+  
+
+  PRIME MINISTER:
+
+  
+
+  I thought I was in Tasmania. Treasurer Egan, I thought you were going 
+to say Crean.
+
+  
+
+  JOURNALIST:
+
+  
+
+  No - has written to Minister Minchin requesting that the Magnesite 
+mine be built in New South Wales and no federal funding would be required. 
+What’s your attitude to that?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+  Well, I don’t know anything about it and 
+until I’ve got some advice on it I’m not going to comment. I didn’t 
+know he’d   written to Nick Minchin. We’re looking at that whole issue. I know 
+the views of the Tasmanian Government and we’re getting an assessment 
+made of the whole thing and we’ll be taking a sensible attitude.
+
+  
+
+  JOURNALIST:
+
+  
+
+  What is your response to the request…
+
+  
+
+  PRIME MINISTER:
+
+  
+
+  Well, I haven’t formulated one yet because I haven’t had it properly 
+analysed and until I do that I’m not going to answer that.
+
+  
+
+  JOURNALIST:
+
+  
+
+  Prime Minister, have you got a personal opinion on it?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+  Well, I form opinions based on proper assessments and not outside 
+Parliaments on Friday afternoons.
+
+  
+
+  JOURNALIST:
+
+  
+
+  Tasmania’s asking for that infrastructure funding money along the 
+lines that it could be a use for the GBF funding money that we’re 
+owed. Could you see that that would be an alternative use for it?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+  Well, the question of how much money is owed is a matter that has 
+to be properly assessed. I know that the Tasmanian Government would 
+like some assistance. We’ll look at the Tasmanian Government’s proposal. 
+But I think one of the things that’s got to be faced by the present 
+Tasmanian Government is that it has a long-term debt problem and until 
+it gets real about getting rid of that debt and adopts a realistic policy 
+about privatisation of the Hydro the long-term debt problem of this 
+State is going to continue.
+
+  
+
+  JOURNALIST:
+
+  
+
+  Given that other States have been given money from major projects 
+would you look favourably on Tasmania’s situation?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+  Well, Tasmania has been very generously treated in relation to the 
+Telstra money. I have, in fact, had a constant stream of complaints 
+from other State Premiers that Tasmania has received more than her fair 
+share of Telstra money. I think Tasmania has been justly treated in 
+relation to the Telstra money given the particular problems of this 
+State. But the long-term debt problem of Tasmania cannot be avoided 
+and this government has to face, meaning the current Tasmanian Government, 
+has to face that reality. And I will continue to remind whoever is the 
+Premier of Tasmania of the need to bite the bullet on debt and until 
+that bullet is bitten this State will continue to have long-term economic 
+problems.
+
+  
+
+  JOURNALIST:
+
+  
+
+  So shouldn’t we be selling the Hydro before we can start going to 
+Canberra, cap in hand, again?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+  Well, I have said before that I believe the long-term solution of 
+the debt problem is the most pressing economic challenge of this State. 
+I said that during the State election campaign. I repeated it to Mr 
+Bacon when he came to see me. I’ll continue to deal fairly with Tasmania 
+as I did in relation to proceeds of the Telstra sale - very fairly indeed, 
+even to the point of incurring a lot of criticism from people like Mr 
+Court and Mr Olsen who said I’d been over-generous to Tasmania. But 
+I will also remind the government of this State it’s got to do something 
+about debt. It’s got to bite the bullet on the Hydro and until it 
+does it’s not playing real.
+
+  
+
+  JOURNALIST:
+
+  
+
+  Mr Howard, what is the Commonwealth doing about 
+the detention of Gabriel Lafit  te?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+  I’m not aware of the details of that and I can’t answer that question.
+
+  
+
+  JOURNALIST:
+
+  
+
+  Prime Minister, as the weeks pass the Kosovar refugees, more and more 
+of them, are expressing a wish to stay in Australia and particularly 
+in Tasmania…
+
+  
+
+  PRIME MINISTER:
+
+  
+
+  I can understand that.
+
+  
+
+  JOURNALIST:
+
+  
+
+  Is the Federal Government looking more sympathetically on those requests?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+  Well, we’ve been generally very sympathetic, that’s why we took 
+4,000 on a safe haven basis. But they were brought here on a safe haven 
+basis and not on the basis of becoming permanent citizens. The problem 
+with giving in and saying, well, you can stay, is that it’s very unfair 
+to the people elsewhere in the world who want to come to Australia and 
+are waiting their turn.
+
+  
+
+  JOURNALIST:
+
+  
+
+  Mr Howard, are you still mates with Paul Barratt?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+  I don’t have any comment to make about Mr Barratt.
+
+  
+
+  JOURNALIST:
+
+  
+
+  Mr Howard, your comments on debt and the Hydro, does that throw any 
+kind of dampener on Tasmania’s request for infrastructure funding? 
+I’m trying to interpret what you’re saying.
+
+  
+
+  PRIME MINISTER:
+
+  
+
+  Well, it’s very easy to interpret, I just meant what I said. I mean, 
+that is reality. And there’s no point in people pretending that the 
+long-term debt problem of this State can be ignored. The debt of this 
+State as a proportion of gross product is four times the State average 
+in Australia. That can’t be ignored forever. And that was the attitude 
+that I took months ago and it’s the attitude I retain because it’s 
+reality.
+
+  
+
+  JOURNALIST:
+
+  
+
+  [Inaudible] throw a dampener at all on Tasmania’s request for infrastructure 
+for the…
+
+  
+
+  PRIME MINISTER:
+
+  
+
+  Well, I think the inability of the government to face the problem 
+throws a dampener on the future economic prospects of the State. If 
+people are worried about dampeners they should do something about the 
+dampener that debt represents. At a Federal level, if we can get the 
+rest of Telstra sold we will be free of net Commonwealth debt by the 
+year 2002. South Australia has got the sale of ETSA through the Parliament. 
+Victoria has liquidated an enormous amount of debt. Tasmania must help 
+itself by doing the same thing.
+
+  
+
+  JOURNALIST:
+
+  
+
+  Would you then agree with Michael Egan’s comment that Tasmania doesn’t 
+deserve any more handouts?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+  Look, I’m not going to take sides with Michael Egan against Tasmania. 
+I’d never do that.
+
+  
+
+  JOURNALIST:
+
+  
+
+  Could you explain from the Government’s perspective what you’ve 
+done with books in the GST?
+
+  
+
+  PRIME MINISTER:
+
+  
+
+  What we’ve done is provide the most generous book assistance programme 
+this country has ever seen. A programme of $240 million over four years. 
+It was negotiated between myself and Senator Lees and the announcement 
+was made today of the details of it. It represents subsidies for educational 
+books. It represents money for authors’ schemes and it represents 
+money to all primary schools around Australia for their libraries. It 
+will bring books to the libraries of Australia, to the children of Australia. 
+I think it’s a wonderful investment in books which are the foutain 
+of knowledge and the way in which children, in particular, have their 
+eyes opened to the world in which they grow up. I think it’s a wonderful 
+scheme.
+
+  
+
+  JOURNALIST:
+
+  
+
+  The Federal Opposition says it’s inadequate compensation [inaudible]…
+
+  
+
+  PRIME MINISTER:
+
+  
+
+  Well, it’s "inadequately" $240 million more than they 
+ever did.
+
+  
+
+  JOURNALIST:
+
+  
+
+  Was it put together after the original deal with the Democrats on 
+the…
+
+  
+
+  PRIME MINISTER:
+
+  
+
+  Well, the broad outlines of it were agreed with Senator Lees during 
+our discussions and then we undertook to negotiate further detail. And 
+the announcement is the result of all of that and I think I might terminate 
+the press conference now. It’s getting a bit chilly. Thank you very 
+much.
+
+  
+
+  [ends]
+
+  
+
+  lb  1999-08-24  11:21
+

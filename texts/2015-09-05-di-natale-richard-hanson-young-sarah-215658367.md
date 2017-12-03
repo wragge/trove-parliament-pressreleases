@@ -1,0 +1,14 @@
+---
+title: "Greens call for emergency intake of 20,000 Syrian refugees"
+date: "2015-09-05"
+creators:
+  - "Di Natale, Richard"
+  - "Hanson-Young, Sarah"
+source: "AUSTRALIAN GREENS"
+subjects:
+trove_url: http://trove.nla.gov.au/version/215658367
+source_url: http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/4060583%22
+---
+
+ Media Release  5 September 2015     Greens call for emergency intake of 20,000 Syrian refugees     Australian Greens Leader Richard Di Natale is calling on the Australian government to initiate an  emergency intake of 20,000 refugees fleeing sectarian violence in Syria’s ongoing civil war, where  over 250,000 men, women and children have already died.    “Four million people are fleeing war in Syria. Two million of those are children. To welcome 20,000  of them into our community would be such an honourable and dignified response from Australia,”  Senator Di Natale said.     “Most Australians have been deeply moved by the horrific images we’re seeing of this escalating  humanitarian crisis in Syria, and in neighbouring countries where desperate men, women and  children are seeking safety.     “Australians regularly lend a helping hand in the wake of natural disasters at home and overseas. It’s  time for us to extend our hand to Syrian refugees. We are strong enough to offer protection.     “I have written to Foreign Minister Julie Bishop and Immigration Minister Peter Dutton requesting  this emergency intake.      “Refugees from Syria aren’t seeking a better life; they are running for their lives.      “There’s no question Australia was enriched by the migration that occurred after World War II and  the Vietnam War. Today the situation is just as dire. The need is just as great.      “We are a lucky country and strong enough to offer people safety and respite from war,” Senator Di  Natale said.      The Greens are also calling for an extra $150 million to be directed to the United Nations High  Commissioner for Refugees, to assist those fleeing the crisis in Syria.     “Australia has an opportunity to do something great here. We have the strength, the capacity and  the generosity to support people who are seeking safety,” said Greens immigration spokesperson  Senator Sarah HansonâYoung.     “$150 million is about a tenth of what the Abbott government is spending on locking up refugees  offshore every year. This relatively small amount would make a world of difference to the UNHCR,  and to those who have been affected by this terrible war.     “I’ve been to the Syrian refugee camps in Jordan and Lebanon, and have helped rescue people in the  Mediterranean. The need is great and, as Australians, we have to play our part.”    Backgrounder attached.    Media contact: Jennifer Faerber 0438 376 082   
+

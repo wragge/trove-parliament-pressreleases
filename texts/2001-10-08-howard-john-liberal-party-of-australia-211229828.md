@@ -1,0 +1,356 @@
+---
+title: "Melbourne: transcript of press conference: [military action against Afghanistan, caretaker convention, aid workers, federal campaign, APEC, boat people]"
+date: "2001-10-08"
+creators:
+  - "Howard, John"
+  - "Liberal Party of Australia"
+source: "PRIME MINISTER"
+subjects:
+  - "military action against Afghanistan"
+  - "caretaker convention"
+  - "aid workers"
+  - "federal campaign"
+  - "APEC"
+  - "boat people"
+trove_url: http://trove.nla.gov.au/version/211229828
+source_url: http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/RJ356%22
+---
+
+ www.pm.gov.au
+
+ 8 October 2001
+
+ TRANSCRIPT OF THE PRIME MINISTER THE HON JOHN HOWARD PRESS CONFERENCE, MELBOURNE
+
+ Subjects:
+
+ E&EO…………………………………………………………………………………………..
+
+ Good afternoon Ladies and Gentlemen, As you are aware, American military action against the Taliban supported by British Forces, commenced in the early hours of this morning Australian eastern time.  I was notified by telephone calls from the American Vice President Richard Cheney between 1.00 and 1.30 and he indicated then that the military action was imminent and was likely to commence within the hour.  There are no Australian Forces involved in this current operation, although the Vice President did indicate during our telephone conversation when he again expressed the gratitude of the American people and the American Administration regarding Australia’s offer, that that offer would very likely be availed of during the course of the campaign which is likely to take some time against the Taliban unfolded.  On behalf of I know the great majority of the Australian people I expressed very strong support for the action initiated by the Americans and supported by British Forces. It is regrettable but the Americans have been extremely patient under incredible provocation. We should never forget the obscenity, the evil of the attack on New York and Washington on the 11th of September.  We should never forget the deaths of thousands of innocent people. We should not forget the fact that hundreds of those who died were of the Islamic faith and in no way is the American attack an attack upon Islam.  It is an attack on terrorism and an attack on evil and I know that Islamic people around the world, not least Australians of Islamic faith, to whom I again extend a hand of fellow Australian citizenship and mateship as united as other Australians of different faiths and indeed of no faiths are in wanting this country to stand beside our American friends and Americans allies in an hour in which, despite their immense power and immense authority, they need the support and the understanding of their friends.
+
+ What is at stake here is the capacity of countries of goodwill, peace loving men and women around the world, to live their lives free of the insidious threat of terrorist attacks.  Inevitably the American attack does heighten the prospect of some retaliatory strikes by the terrorists particularly but not only in the United States.  As a result of the military action there is a
+
+ PRIME MINISTER
+
+ 2
+
+ heightened level of security activity here in Australia.  Additional steps have been taken to upgrade security surrounding both individuals and infrastructure that could be the target of terrorist attacks.  The support and cooperation which I know will be forthcoming is being sought and enlisted from State Governments.  I don’t want to over dramatise, but equally I don’t want to underestimate or understate the obvious, and that is that all of those who stand with our American friends are potential targets and although our vulnerability has increased, it is not judged that Australia’s vulnerability is of course as great as the United States or some other countries.  But this is not an occasion when the Australian Government or the Australian can be fair weather friends of the Americans.  The present generation of Australians should never forget that it was America that stood between a continuation of democracy and freedom in Australia and the Japanese thrust during World War II although of course our own massive contribution given our size was also a very major defeat in holding the Japanese advance.  And in those circumstances despite the immense power and immense capability of the American nation militarily she is deserving of our support and of our compassion and of our understanding.
+
+ I don’t know how long this operation will last.  I don’t know how long activity will be needed.  We all will hope and pray it will not be long.  But the reality is it could be protracted, there will inevitably be the risk of casualties.  We all hope and pray that those casualties are minimal and we all hope that innocent people in Afghanistan do not suffer further the consequences of the refusal of the Taliban regime to cooperate in a sensible decent way in response to the very legitimate American requests.
+
+ It is important we understand the commitment of Pakistan and the pressure being placed upon Pakistan by these events.  I have indicated in the past my very strong view that one of the ways in which we can best respond to the refugee surge that could well follow military activity against Afghanistan would be to increase the measure of assistance the world gives to Pakistan. I join President Bush and the British Prime Minister Mr Blair in saying that the world needs to be generous in its response in relation to humanitarian aid and you will be aware of the $23 million that’s been announced over recent weeks, the great bulk of which will go through United Nations agencies to improving the capacity of the government and the people of Pakistan to respond to the inevitable pressure that will be placed upon their resources by the likely refugee exodus from Afghanistan.
+
+ Can I conclude my opening remarks before taking questions by again defining what is at stake here as being a fight between those who believe in freedom and liberty and peace, and the right of men and women of goodwill of all faiths around the world to go about their lives free of terror and intimidation and those on the other hand who would seek to intimidate and cow great people and mighty nations by terror.  It is not a fight between Christianity and Judaism on the one side and Islam on the other side.  I’ve said in the Parliament and I repeat it again that barbism has no ethnicity and evil has no religion and this is a contest, fight, between those who oppose the evil of terrorism where ever they live, whatever country they are loyal to and whatever faith they follow and those who do not.
+
+ JOURNALIST:
+
+ Prime Minister… Indonesia … that several thousand Australians who live there have been advised or warned to stay inside to avoid any backlash against westerners?
+
+ PRIME MINISTER:
+
+ 3
+
+ That is true.  A cautionary note, warning has been given, consular warning.  But some suggestions about evacuation from Indonesia are not correct. But clearly people in Indonesia, Australians in  Indonesia need to exercise care and caution.
+
+ JOURNALIST:
+
+ Have you sought protection guarantees from the Indonesian Government, or does that go without saying.
+
+ PRIME MINISTER:
+
+ That goes without saying.  That’s a normal incident of a diplomatic relationship.
+
+ JOURNALIST:
+
+ Have your received a briefing at all about the success or otherwise of the strikes.
+
+ PRIME MINISTER:
+
+ No, no briefings of that kind are available as yet but I do expect to receive one this afternoon.
+
+ JOURNALIST:
+
+ Would you advise Mr Beazley if those strikes were successful, or did you advise him immediately after Vice President Cheney….?
+
+ PRIME MINISTER:
+
+ No I didn’t. I didn’t ring him at half-past-one in the morning.  No I didn’t.
+
+ JOURNALIST:
+
+ Would you in the future under caretaker mode?
+
+ PRIME MINISTER:
+
+ What I will do is observe the caretaker conventions and the caretaker conventions require that major commitments or commitments that will obligate a future government should not be entered into without consultation with the opposition. That’s the caretaker convention. But self evidently in relation to notification that the raids were about to commence, self evidently as they were going to follow within an hour of my being rung by the Vice President. I don’t think there was any particular requirement to speak to Mr Beazley. But let me make his clear so we sort of don’t waste endless questions on this throughout the whole of this very unhappy set of circumstances. I’ve kept Mr Beazley informed. I’ve been willing to do that irrespective of whether we’ve been in a caretaker period. In relation to all of Australia’s military deployments or potential military deployments I remind you of what I did in relation to East Timor and I extended all of the courtesies to Mr Beazley involving including his being fully involved in any visits to say goodbye to our forces when they were going overseas.  And I’ve been scrupulous in observing those practices and I’ll continue to do so whether we’re in
+
+ 4
+
+ caretaker mode or not because I have the strongest possible view that as is evident to all of you that when men and women in our defence forces go overseas they go overseas in the name of Australia. They don’t go overseas in the name of one or other side of politics.
+
+ JOURNALIST:
+
+ .. and will it constrain you at all in the election campaign?
+
+ PRIME MINISTER:
+
+ Well I don’t intend to allow what has occurred to constrain me during the election campaign. There has been an increased level of security extended to all of those individuals and all of that infrastructure which could be a target.
+
+ JOURNALIST:
+
+ Have any of Australia’s special forces either left Australia or …?
+
+ PRIME MINISTER:
+
+ No they haven’t left Australia yet and would be my intention, let me say generally in relation to this subject only, to not wanting to say anything that might in any way endanger the lives or the safety of Australian forces. I would want to keep the Australian people fully and regularly informed of what is occurring and any movement.  But as I speak no Australian forces have been deployed overseas.
+
+ JOURNALIST:
+
+ … request for those forces today?
+
+ PRIME MINISTER:
+
+ No I haven’t, no I haven’t.
+
+ JOURNALIST:
+
+ What did you do after you heard about the strikes?
+
+ PRIME MINISTER:
+
+ What did I do?  Well I spoke to my wife and son, and my daughter was asleep and I spoke to one of my sons who wasn’t, and to my wife and we talked about it for a while and then I tried to get some sleep.  And I thought about it for quite a while. I had been warned about an hour earlier that a phone call was coming. So I had some time to think about it.
+
+ 5
+
+ JOURNALIST:
+
+ …Defence Minister?
+
+ PRIME MINISTER:
+
+ The Defence Minister rang me within a short while of the phone call I received from the Vice President. He reported to me that the Pentagon had been in touch with Admiral Barrie, the Chief of the Australian Defence Force, not long after I’d spoken to the Vice President and we talked about the situation for a while.
+
+ JOURNALIST:
+
+ … safety of Peter Bunch and …?
+
+ PRIME MINISTER:
+
+ Well I have thought about that and in fact I’ve talked to a number of people about that.  I feel very much for them and for those close to them.  We can’t have a situation where the safety and decent treatment of people who are doing nothing but preach Christianity are put under threat in the way that the Taliban have done in relation to these people and I hope to have an opportunity over the next few days to speak to some people in Western Australia who are close to this couple, and it’s a very sad and awkward situation.  Very very difficult.
+
+ JOURNALIST:
+
+ In relation to Australians of Islamic faith and Indonesia, are there any special measures needed….you talked about attitudes of Australians….?
+
+ PRIME MINISTER:
+
+ I think the most special of all measures is for me to use the authority of my office to remind all Australians that our quarrel is not with people of Arab descent, our quarrel is not with people of the Islamic faith. We should not vent any anger against symbols of Islam in Australia.  We are an open and tolerant society and according to the Judao/Christian ethic which is meant to govern conduct in this country we should remain an open tolerant people that recognises the right of people to have freedom of worship, worship any religion they like or indeed they have no religious worship at all.
+
+ JOURNALIST:
+
+ Did you have any anticipation of these events… when you announced the election on Friday?
+
+ PRIME MINISTER:
+
+ No.
+
+ 6
+
+ JOURNALIST:
+
+ Prime Minister….
+
+ PRIME MINISTER::
+
+ Geoffrey Barker.
+
+ JOURNALIST:
+
+ Prime Minister I was just wondering in view of what you’ve said this morning about the desirability of supporting America’s efforts, do you wish you had rather more military capability to be able to offer up beyond 150 SAS troops and a couple of refuelling planes?
+
+ PRIME MINISTER:
+
+ I think the military capability that we’re offering - and it goes potentially beyond that - what we’re offering, given our size is quite significant.
+
+ JOURNALIST:
+
+ (inaudible)… will affect the campaign plans of yourself…
+
+ PRIME MINISTER:
+
+ Well I will continue to involve myself in the election campaign. I have not sought a conjunction of the election campaign with these events.  These events have come sadly completely out of the blue, from the…
+
+ JOURNALIST:
+
+ (inaudible)…
+
+ PRIME MINISTER:
+
+ Well that ultimately is a matter for the Australian people to make a judgement about.  I have not sought to excessively join the two events.  I don’t intend to intrude party political politics, that is not appropriate and I would not expect Mr Beazley to do that either.  Obviously the capacity of individuals and different sides of politics to respond to challenges is part of the mix of issues that people take into account when they decide how they’re going to vote.  That is not something that I have exercised any control over.
+
+ JOURNALIST:
+
+ Have you been briefed today on the lastest load of asylum seekers and does your statement (inaudible)…apply to all of those on board ….
+
+ 7
+
+ PRIME MINISTER:
+
+ Well we don’t want people who seek to come to this country illegally to be able to do so and I would have thought what we’ve done over the last few weeks is to demonstrate a determination to send that message.  I express my anger at the behaviour of those people and I repeat it. I can’t comprehend how genuine refuges would throw their children overboard. I find that it is against the natural instinct, people leave a regime, leave a country, flee persecution to give a better life and to give a future to their children. Not to put it at risk in the way that, apparently, some of those people have done.  I don’t retreat from the remarks that I made about that behaviour.
+
+ JOURNALIST:
+
+ (inaudible)…. Mr Howard do you plan to visit a mosque….?
+
+ PRIME MINISTER:
+
+ I would expect to be able to do that at some time in the very near future. Yes.
+
+ JOURNALIST:
+
+ Have you had any indication that President Bush may not attend APEC now?
+
+ PRIME MINISTER:
+
+ No quite the reverse. I  in fact asked him and because I said that I hope to see the President and the Vice President told me that that it was the President’s intention to go the leaders’ meeting. I think he’s going to curtail some other aspects of his visit but he will go the leaders’ forum in Shanghai. And that just underlines, in my view, the need for me to go there and how foolish and neglectful of the national interest it is of Mr Beazley to criticise me for going there.
+
+ JOURNALIST:
+
+ (inaudible)…. International events will overshadow the very important domestic issues that Australian people have to make up their minds about?
+
+ PRIME MINISTER:
+
+ Look Australians are very sophisticated mature people when it comes to making political judgments.  I don’t seek to tell them what waiting should be given, they are perfectly capable of reflecting on all of these things and they don’t really need me to give them some kind of tutorial and I would be so presumptions as to try and do so.
+
+ JOURNALIST:
+
+ (inaudible)… are you planning national address…?
+
+ 8
+
+ PRIME MINISTER:
+
+ Well at this stage that’s an option but there are many opportunities I have, particularly in the current circumstances because of the campaign to talk directly to the Australian people.
+
+ JOURNALIST:
+
+ According to the advice you’ve received on this matter, why was it that the US chose to bomb rather than sending troops and do you fear that an unsuccessful military action will serve no purpose other than to ….
+
+ PRIME MINISTER:
+
+ Well I guess they decided to do that on military advice. It seems pretty sensible to me to start with missile and bombing attacks on sensitive strategic targets which is exactly what they’ve done.
+
+ JOURNALIST:
+
+ Have you spoken to any other leaders like Mr Blair ….
+
+ PRIME MINISTER:
+
+ No, well I did speak to Mr Blair, I had a discussion with Mr Blair some ten days ago when he rang to say he wouldn’t be able to come to CHOGM and we in fact had quite an extensive discussion about the aftermath of the terrorist attack and about how our society would have to adjust.  Interestingly enough one of the things he did say to me during that discussion was that they in Britain would have to review their attitude towards asylum seekers.  The implication being that they would have to take a tougher attitude.
+
+ JOURNALIST:
+
+ What is the latest on the boat …(inaudible).
+
+ PRIME MINISTER:
+
+ Well the boat is, so I’m told, when I last spoke to somebody who was informed of it, somebody told me it was somewhere in the order of 25-30 kilometres from Christmas Island. It’s not at the moment moving in any particular direction, it’s quite safe.  Although some attempts have been made to disable it.
+
+ JOURNALIST:
+
+ (inaudible)… what are you going to do about it now?
+
+ 9
+
+ PRIME MINISTER:
+
+ Well we’re examining various options in relation to that.  And Mr Ruddock or Mr Reith or myself, more likely one of the others will have something further to say about that either later today or tomorrow.
+
+ JOURNALIST:
+
+ On the terrorist reaction you mentioned the states being involved in that…
+
+ PRIME MINISTER:
+
+ Well the sates have been asked, the states have been asked in the normal way to cooperate with increased security arrangements.
+
+ JOURNALIST:
+
+ Job advertisements fell 1.6 per cent (inaudible)… does this indicate a worsening to come to the economy?
+
+ PRIME MINISTER:
+
+ Well I never make bold predictions on the basis on one months figures in one area.  The labour market in Australia has been remarkably resilient over the last 12 months and one of the reasons it’s been resilient to the actions that the government has taken in certain areas to, particularly in housing, to sustain a great deal of economic activity.  Clearly we face a more difficult economic time over the next year because of the weakness of the American economy, even before the 11th September and the impact of the 11th September attacks on American confidence.  And it just underlines the need to keep in charge of the Australian economy a group of people who’ve demonstrated over the last five and half years that they are better able then the alternative to lead Australian through difficult and challenging economic circumstances.
+
+ JOURNALIST:
+
+ … package for the dental health scheme….(inaudible)…
+
+ PRIME MINISTER:
+
+ Well we have a view very strongly that this is an area that traditionally has been one for the states and it is just once again illustrating the contradiction in Mr Beazley’s position.  He is opposed to the very tax, namely the Goods and Services Tax and says he’s going to roll it back, we don’t know by how much and where and this very tax is the one that will increase the capacity of the states in the years ahead to fund the programmes for which they are traditionally responsible.  And this is exactly one of them. So here you have this contradiction being worked out. He’s against the mechanism that will give the states the additional capacity and he’s promising more federal money.  I think it’s extraordinary.
+
+ 10
+
+ JOURNALIST:
+
+ Have you agreed as yet to any support for the tourism industry about (inaudible).?
+
+ PRIME MINISTER:
+
+ We did this morning have a discussion about that and I expect the Minister for Tourism to be making an announcement about a modest area but important area of support.
+
+ JOURNALIST:
+
+ What was your reaction to hearing Russia, China come out with unqualified support (inaudible)…
+
+ PRIME MINISTER:
+
+ Well I welcome the broadest possible expressions of support.  That’s good.  I think the way in which the Russians have reacted has been very encouraging.  President Bush and President Putin have evidently to me have developed a very good relationship and that’s encouraging. And although the Chinese reaction was a little more qualified than the Russian it’s very encouraging that it’s happened.  Am I concerned about the Iranian? Well I would rather the Iranians had reacted differently.  It’s very important to try and enlist moderate Arab opinion. It’s important to try that’s why I shared the reaction of the President to the unfortunate remarks made by Ariel Sharon which he himself has now indicated that he probably regrets, it was poorly chosen. I say that as an unashamed supporter and friend of Israel and a great admirer of the Israeli people.  But we have to enlist the aid of people of great good will around the world, irrespective of what their alignment has been on issues on earlier occasions. Two more questions then I must go.
+
+ JOURNALIST:
+
+ (inaudible)…asylum seekers to come to Australia…
+
+ PRIME MINISTER:
+
+ To be processed in Australia no.
+
+ JOURNALIST:
+
+ (inaudible)….are you saying that Australia won’t…
+
+ PRIME MINISTER:
+
+ No I’m not saying that, I’ve always said that if people are, they come out of the assessment process properly assessed as refugees than we’ll take our fair share in accordance with our long standing policy.
+
+ 11
+
+ JOURNALIST:
+
+ (inaudible).
+
+ PRIME MINISTER:
+
+ Well I state a general principle and it applies to everybody.
+
+ JOURNALIST:
+
+ (inaudible).  Is there any danger of inflaming anger…(inaudible).
+
+ PRIME MINISTER:
+
+ No.
+
+ JOURNALIST:
+
+ (inaudible)…know where Bin Laden is at the moment..
+
+ PRIME MINISTER:
+
+ Well it was an unscrambled line.  I’d hardly ask him that - not on an unscrambled line. I mean there’s a fair amount of goodwill around but you’ve got to be a bit careful of that.
+
+ Thank you.
+
+ [ends]
+

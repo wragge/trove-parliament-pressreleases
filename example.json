@@ -1,0 +1,153 @@
+{
+    "work": {
+        "id": "193102377",
+        "url": "/work/193102377",
+        "troveUrl": "http://trove.nla.gov.au/work/193102377",
+        "title": "Transcript of joint press conference: Parliament House, Canberra: 27 June 2012: asylum seeker boat tragedies; border protection policies",
+        "contributor": [
+            "Morrison, Scott"
+        ],
+        "issued": 2012,
+        "type": [
+            "Article",
+            "Article/Other article"
+        ],
+        "subject": [
+            "asylum seeker boat tragedies",
+            "border protection policies"
+        ],
+        "abstract": [
+            "A press release captured for archiving in the Australian Federal Parliamentary Library, Press Releases Database. Joint Press Conference, Canberra June 27, 2012 Subjects: Asylum seeker boat tragedi ... A press release issued by a member of the Australian Federal Parliament.    LEADER OF THE OPPOSITION THE HON. TONY ABBOTT MHR FEDERAL MEMBER FOR WARRINGAH 27 June 2012 TRANSCRIPT OF THE HON. TONY  ... "
+        ],
+        "language": [
+            "English",
+            "eng"
+        ],
+        "holdingsCount": 1,
+        "versionCount": 1,
+        "tagCount": 0,
+        "commentCount": 0,
+        "listCount": 0,
+        "identifier": [
+            {
+                "type": "url",
+                "linktype": "fulltext",
+                "value": "http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/2116920%22"
+            },
+            {
+                "type": "url",
+                "linktype": "thumbnail",
+                "value": "http://parlinfo.aph.gov.au/parlInfo/download/handbook/allmps/E3L/upload_ref_binary/E3L.JPG"
+            }
+        ],
+        "version": [
+            {
+                "id": "211375656 211375694",
+                "record": [
+                    {
+                        "header": {
+                            "identifier": [
+                                {
+                                    "linktype": "fulltext",
+                                    "value": "http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/2116920%22"
+                                }
+                            ]
+                        },
+                        "coverage": "27 June, 2012",
+                        "creator": "Morrison, Scott",
+                        "date": "2012-06-27",
+                        "extent": "4p.",
+                        "identifier": [
+                            {
+                                "linktype": "fulltext",
+                                "value": "http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/2116920%22"
+                            },
+                            {
+                                "linktype": "thumbnail",
+                                "value": "http://parlinfo.aph.gov.au/parlInfo/download/handbook/allmps/E3L/upload_ref_binary/E3L.JPG"
+                            }
+                        ],
+                        "language": [
+                            "eng"
+                        ],
+                        "source": "Office of MORRISON, SCOTT, MP",
+                        "rights": "Copyright remains with the copyright holder. Contact the <a href=\"http://www.copyright.org.au\">Australian Copyright Council</a> for further information on your rights and responsibilities.",
+                        "description": {
+                            "type": "fulltext",
+                            "value": "A press release captured for archiving in the Australian Federal Parliamentary Library, Press Releases Database. Joint Press Conference, Canberra June 27, 2012 Subjects: Asylum seeker boat tragedi ..."
+                        },
+                        "title": "Transcript of joint press conference: Parliament House, Canberra: 27 June 2012: asylum seeker boat tragedies; border protection policies",
+                        "subject": [
+                            " asylum seeker boat tragedies",
+                            "border protection policies"
+                        ],
+                        "type": "Press Release",
+                        "isPartOf": "Press releases database, Australian Parliamentary Library.",
+                        "metadataSource": {
+                            "type": "nuc",
+                            "value": "APAR:PR"
+                        }
+                    },
+                    {
+                        "header": {
+                            "identifier": [
+                                {
+                                    "linktype": "fulltext",
+                                    "value": "http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/1742690%22"
+                                }
+                            ]
+                        },
+                        "coverage": "27 June, 2012",
+                        "creator": "Morrison, Scott",
+                        "date": "2012-06-27",
+                        "extent": "6p.",
+                        "identifier": [
+                            {
+                                "linktype": "fulltext",
+                                "value": "http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/1742690%22"
+                            },
+                            {
+                                "linktype": "thumbnail",
+                                "value": "http://parlinfo.aph.gov.au/parlInfo/download/handbook/allmps/E3L/upload_ref_binary/E3L.JPG"
+                            }
+                        ],
+                        "language": [
+                            "eng"
+                        ],
+                        "source": "SHADOW MINISTER FOR IMMIGRATION",
+                        "rights": "Copyright remains with the copyright holder. Contact the <a href=\"http://www.copyright.org.au\">Australian Copyright Council</a> for further information on your rights and responsibilities.",
+                        "description": {
+                            "type": "fulltext",
+                            "value": "A press release issued by a member of the Australian Federal Parliament.    LEADER OF THE OPPOSITION THE HON. TONY ABBOTT MHR FEDERAL MEMBER FOR WARRINGAH 27 June 2012 TRANSCRIPT OF THE HON. TONY  ..."
+                        },
+                        "title": "Transcript of joint press conference: Parliament House, Canberra: 27 June 2012: asylum seeker boat tragedies; border protection policies",
+                        "subject": [
+                            " asylum seeker boat tragedies",
+                            "border protection policies"
+                        ],
+                        "type": "Press Release",
+                        "isPartOf": "Press releases database, Australian Parliamentary Library.",
+                        "metadataSource": {
+                            "type": "nuc",
+                            "value": "APAR:PR"
+                        }
+                    }
+                ],
+                "type": [
+                    "Article",
+                    "Article/Other article"
+                ],
+                "issued": "2012-06-27",
+                "holdingsCount": 1,
+                "tagCount": {
+                    "level": "version",
+                    "value": "0"
+                },
+                "commentCount": {
+                    "level": "version",
+                    "value": "0"
+                }
+            }
+        ]
+    }
+}

@@ -1,0 +1,424 @@
+---
+title: "Transcript of joint press conference: Bali Process Ministerial Conference: 30 March 2011"
+date: "2011-03-30"
+creators:
+  - "Rudd, Kevin"
+  - "Natalegawa, Marty"
+source: "MINISTER FOR FOREIGN AFFAIRS"
+subjects:
+trove_url: http://trove.nla.gov.au/version/211351122
+source_url: http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/774292%22
+---
+
+ The Hon Kevin Rudd MP   Australian Minister for Foreign Affairs Joint Press Conference, Bali Process Ministerial Conference Transcript, E&OE, proof only 
+
+ 30 March 2011
+
+ Minister Natalegawa: [Opening statement in Indonesia]
+
+ Minister Natalegawa: Kevin and Chris, I was saying just now that we have had a very good discussion throughout 
+
+ today on the Bali Process dealing with the issue of people smuggling, human trafficking and other related transnational 
+
+ crimes. 
+
+ I have explained to my colleagues that the outcome of the conference is reflected admirably in the Chairman's 
+
+ statement so I will not go into that Chairman's statement except to reinforce one key message, namely how the 
+
+ process that Indonesia and Australia began back in 2002 has now become very much a part of the region's 
+
+ architecture in dealing with this common vice and common challenge namely the challenge of people smuggling, 
+
+ human trafficking and other relevant transnational crime. 
+
+ What struck me most, among other things, during the course of our discussions today, was how all of us countries 
+
+ participating in the process are one in recognizing these are the sort of challenges that demand common efforts that 
+
+ define national solutions and that requires all of us to work hand in hand in overcoming that. Especially I thought there 
+
+ was a recognition that the challenge of people smuggling and the challenge of human trafficking are very much related, 
+
+ as well as the other dimensions and other forms of transnational problems as well. 
+
+ We are confident that as a result of our deliberations today, we have really strengthened the possibility of our further 
+
+ collaboration ahead and actually the Chairman's statement provides for real concrete actionable steps that countries 
+
+ participating in the Bali Process can carry out next year, throughout the year to ensure that the very challenges that we 
+
+ have identified can be overcome in a good way. By way of my own introductory remarks, I would now like to hand over 
+
+ the floor to Kevin who would like to say a few words as well.
+
+ Minister Rudd: Good afternoon, thank you Pak Marty and good afternoon ladies and gentlemen. 
+
+ Legal and illegal migration represents a global challenge; it represents a regional challenge; it represents a national 
+
+ challenge.  As the IOM advises today the people of the world are now on the move more than any other time in human 
+
+ history. In any one year today we have nearly one billion of the world's family on the move; a quarter of whom are 
+
+ engaged in international migration; three quarters of whom are engaged in internal migration. This is therefore creating 
+
+ enormous pressures on all of our national systems, regional systems and global institutions. Around the world right 
+
+ now we have some 41 million people who are displaced internally or internationally. 15.9 million of those are refugees. 
+
+ And here in our own region we have some 3.9 million. This is a large challenge in our region therefore as well. 
+
+ Because of the dimensions of this challenge, right now across the world there are 15 regional groupings engaged in 
+
+ deliberations of the type we are engaged in, in our part of the world. And that is because across the world and the 
+
+ various regions of the world, people have concluded that the response to these challenges must be regional and they 
+
+ lie beyond the scope and power of any individual nation state to deal with alone. What we have therefore in this co-chairman statement today, which has just achieved the support of the participating states in the conference we are 
+
+ holding here in Bali, is the first regional framework for cooperation agreed among any of these regions in the world. 
+
+ This is an important achievement. 
+
+ What specifically does this regional cooperation framework do? Firstly it commits participating states to the elimination 
+
+ of people smuggling or to paraphrase the language of the document itself, to undermine the people smuggling 
+
+ business model. Second, it commits participating states where possible to the harmonization of regional arrangements 
+
+ to the establishment of regional assessment arrangements including the possibility of a regional centre or regional 
+
+ centres. It also provides for the proper handling of those deemed to be refugees, it also provides for the returning of 
+
+ Page 1 of 5 Joint Press Conference, Bali Process Ministerial Conference, transcript, 30 March 201...
+
+ those found not to be refugees; and all done in a manner compatible with the relevant international standards. This 
+
+ regional framework agreement has therefore been supported by both the UNHCR and by the IOM. 
+
+ Finally this regional cooperation framework now creates the basis for specific measures to be adopted between 
+
+ individual states within our region, including the possibility of harmonized regional assessment arrangements including 
+
+ the possibility of a regional centre or regional centres. Therefore the fact that this regional protection framework, this 
+
+ regional cooperation framework has been agreed, here's a critical step forward in our region's response to the 
+
+ challenge of people smuggling, to the challenge of illegal migration, to the challenge of proper protection. 
+
+ Two final points; also within the remit of this conference is important work in the area of human trafficking. This is a 
+
+ huge challenge for our region as well. Listening to delegates this morning from Cambodia, from Thailand and from 
+
+ other countries report on the measures they are taking to deal with this appalling crime, reinforces our determination as 
+
+ a group of states to heighten our efforts in dealing with human trafficking. We have resolved to make this a further area 
+
+ of strong emphasis for our work at the next Bali conference. Also the contributions from various member states 
+
+ underline the absolute importance of dealing with people smuggling, human trafficking, the narcotics trade and other 
+
+ elements of transnational crime as a combined or collective or total challenge. That is that we need to coordinate our 
+
+ resources across the board rather than simply concentrate on a single part of it. This will require unprecedented 
+
+ cooperation between agencies within states and unprecedented cooperation between states as all these crimes are 
+
+ linked one to the other. 
+
+ My final point is this, none of the achievements that we have recorded in this Bali conference would have been 
+
+ possible without the co-chairmanship of Indonesia and my good friend and colleague the Foreign Minister of Indonesia 
+
+ Marty Natalegawa. Indonesia's co-hosting of this conference for the last four of them has been vital, the co-hosting of 
+
+ this conference and the work of officials in delivering this outcome has been vital and I would like to publicly thank and 
+
+ acknowledge the Republic of Indonesia for its support for this process. 
+
+ To conclude, I would also like to add that in Jakarta yesterday I had the opportunity and again today with others to 
+
+ discuss the future of the East Asian Summit as well. In meetings yesterday with President Yudhoyono of Indonesia, 
+
+ with the Foreign Minster of Indonesia and today with the Foreign Minister of Thailand we look forward very much to 
+
+ Indonesia's hosting of this important regional institutional event later this year and Australia stands ready to support our 
+
+ good friends in Indonesia in making sure that this East Asian Summit is a success and together we help craft a new 
+
+ robust institution for the future of our wider region. 
+
+ Having said that, Chris, you may wish to add some remarks.
+
+ Minister Bowen: Thank you Kevin and thank you Pak Marty. 
+
+ Today is a significant result if you look at the communiquÃ©s and such statements of the chairs of previous Bali process 
+
+ meetings; this is without doubt the most significant of the last ten years. 
+
+ Australia came to this meeting seeking a regional framework. 
+
+ We weren't sure we would get it but we were very pleased with the agreement which has been reached that a regional 
+
+ agreement is being entered into by the members of the Bali process. This is a very significant step forward. 
+
+ Today the Bali Process members outlined the architecture of the framework. It is now open for bilateral discussions to 
+
+ fill in the details, to build the walls of the regional agreement that has been laid out by members today. If you look at the 
+
+ statements from the co-chairs and the agreement from all nations to work together to tackle the people smuggling, 
+
+ particularly the measures envisaged in paragraph 16 and 19 of the statement of the co-chairs. This is very significant 
+
+ step forward and like Kevin, I thank Pak Marty and every delegate, every minister and representative of the nations 
+
+ represented around the table today. 
+
+ Having so many nations in the room has not always lent itself to reaching an agreement, a unanimous agreement, but 
+
+ we were able to reach it today. 
+
+ I said previously that Australia believes we need a regional solution to a regional problem. Today we have taken a step, 
+
+ a significant step towards that I've said before that nobody should doubt the resolve of the Australian Government to 
+
+ reach that agreement and to take concrete steps within that framework. That agreement reached today re-doubles our 
+
+ Page 2 of 5 Joint Press Conference, Bali Process Ministerial Conference, transcript, 30 March 201...
+
+ resolve to do so and to ensure that we are able to work together with our regional colleagues in terms of the regional 
+
+ agreement struck today to break the business model of the people smugglers. 
+
+ Like Kevin and Pak Marty, I would like to thank all the delegates today, all the senior officials who on our behalf have 
+
+ been discussing what would be put to us today and thank everybody for the cooperative attitude of consensus and 
+
+ unanimous result that we have achieved in the room today. Thanks you very much Kevin and Pak Marty.
+
+ Minister Natalegawa: We can take a few questions perhaps.. 
+
+ Journalist: Pak Marty, Minister Rudd and Minister Bowen, Matt Brown from the ABC — question for Minister Rudd — 
+
+ East Timor's Vice Foreign Minister has told us today than even in light of this agreement that you have struck today, 
+
+ East Timor isn't interested in hosting a regional processing centre and that East Timor would rather that Australia look 
+
+ elsewhere for that processing centre. 
+
+ Is that the end of your attempts to negotiate a processing centre in East Timor and will you look elsewhere?
+
+ Minister Rudd: In our discussions with the Vice Foreign Minister of East Timor he indicated that this matter had yet to 
+
+ be deliberated upon by the Council of Ministers in East Timor. So we will wait for the outcome of those deliberations. 
+
+ Secondly, as I have said repeatedly in the Australian parliament, these are legitimate matters of national debate in any 
+
+ country, in any democracy, including in East Timor and thirdly therefore, we will wait for the conclusion of those 
+
+ deliberations to go back to what I said before, and Chris may want to add to this, the importance of this regional 
+
+ cooperation framework is that it provides the possibility within it for participating states if they so choose, to embrace 
+
+ and harmonize regional processing arrangements including the possibility of a regional centre or regional centers. 
+
+ Minister Bowen: Well simply to add the Bali Process does have the respect of the Asia Pacific region and many 
+
+ nations have expressed a view that such an endorsement as we have received today would be a necessary step in the 
+
+ development of a centre and other bilateral proposals. 
+
+ Of course we have said that East Timor would be the focus of our discussions and they have been, but today the very 
+
+ significant step in the development of those discussions across our region and then lays the framework for further 
+
+ bilateral discussions. 
+
+ Journalist: Just on the questions of those discussions with East Timor; you said recently that the discussions will take 
+
+ place bilaterally and not as part of a broader regional framework [inaudible] East Timor is not interested in bilateral 
+
+ discussions and that this issue should be resolved in the context of the Bali Process. Where does that leave you?
+
+ Minister Bowen: Well let me say this: Very clearly, I have said continuously, there are a range of views in the East 
+
+ Timorese Government about how to handle this. It is a controversial issue in East Timor as you would expect. Certainly 
+
+ the communication we have received from the highest levels of the East Timorese Government is that the discussions 
+
+ should continue, not underestimating the difficulty of those discussions for East Timor and the controversial nature of 
+
+ them within East Timor. We are happy to continue those discussions and of course the agreement reached today 
+
+ enables discussions to continue across the Board in relation to the set of arrangements envisaged by the regional 
+
+ framework. 
+
+ Clearly, I flagged some time ago Paul, to you and your paper, and I read your story today but I flagged some time ago 
+
+ that this meeting would not be resolving the geographic location of any assessment centre, but we have taken 
+
+ significant step forward today in the endorsing the concept of an assessment centre as a potential part of the 
+
+ framework. 
+
+ I have flagged that some time ago with respect to your story today that this would not be something, that the 
+
+ geographical location would not be something, on the agenda of ministers this morning 
+
+ Journalist: What other nations then might you discuss regional centres with, and have you discussed it with any?
+
+ Minister Bowen: I repeat, East Timor has been the focus of our discussions, of course we discuss a number of issues 
+
+ with bilateral nations all the time but East Timor has been the focus of our discussions about an assessment centre. 
+
+ Journalist: [Question in Indonesian]
+
+ Page 3 of 5 Joint Press Conference, Bali Process Ministerial Conference, transcript, 30 March 201...
+
+ Minister Natalegawa: [Response in Indonesian]
+
+ Minister Rudd: Just to add something to that, and then we will come back to that next question if that is alright.
+
+ I understand from the interpretation that the question dealt with why the conference didn't deal with the source 
+
+ countries and why we are primarily dealing with destination countries and reference was made to the particular 
+
+ example of Libya. 
+
+ Can I just say for everyone else in the room — one, and backing up what I think Pak Marty had to say, is that the 
+
+ conference dealt at length with the fact that the challenge of asylum seekers is dynamic and is not static. There are 
+
+ new source countries emerging all the time, new destination countries emerging all the time. 
+
+ Secondly, on the current example of Libya, let me underline one fact, the Government of Australia is currently globally 
+
+ the third largest financial contributor to the humanitarian effort in Libya now, primarily through the agencies of the IOM 
+
+ and UNHCR to get people out and therefore having spoken to the Foreign Minister of Bangladesh and others who 
+
+ expressed their appreciation for our support, getting literally tens of thousands of people out of that zone. 
+
+ Were they not to be returned to their countries of origin then we would have a massive refugee problem on our hands. 
+
+ However our sense of international obligation extends to being significant, the third largest in the world of financial 
+
+ contributors to a source country problem right now. 
+
+ Journalist: An unrelated question to both Pak Marty and Minister Rudd, can either of you confirm the arrest in 
+
+ Pakistan of Umar Patek?
+
+ Minister Rudd: I will let Pak Marty speak for himself but for us, it is clear that Patek has been arrested. 
+
+ Furthermore it is our view that Patek's arrest is potentially a major step forward in the fight against terrorism. 
+
+ His arrest might offer some small comfort to the nearly 100 Australian families who lost loved ones in the Bali bombings 
+
+ way back in 2002. Of course his arrest does not bring anyone back. 
+
+ I would also say that Patek has been one of Indonesia's most wanted terrorists for a long time; one of the last Bali 
+
+ bombers so accused still at large. We therefore will be in the closest liaison with our friends in Pakistan and our friends 
+
+ in Indonesia on what happens next in relation to this particular case. 
+
+ Minister Natalegawa: Let me just say, on Umar Patek, obviously he is a person of interest to Indonesia. 
+
+ He has been and we have been pursuing him irrespective of his geographical whereabouts but for operational 
+
+ purposes, not wanting at the same time to reject what Minister Rudd has said, I can not confirm that fact but having 
+
+ said that, it is more for operational purposes that I can not confirm that fact. Because our interests extend beyond this 
+
+ arrest, the arrest of Umar Patek, but our interests also extend to include the disruption of the network that he 
+
+ represents, that he is part of, and therefore even if we say for the sake of argument that he has been arrested, our 
+
+ interest is not only in this arrest but also in getting as much information out of him before the possibilities become 
+
+ jeopardized by his confirmation.
+
+ Journalist: Just a quick follow up question for Mr Rudd, Indonesia is sending a team over, they're going to do dna 
+
+ testing and that kind of thing. Does Australia have its own reporting that confirms the arrest of Umar Patek?
+
+ Minister Rudd: We do not comment on intelligence matters. 
+
+ I have simply responded according to what is the appropriate set of circumstances as they present themselves to us 
+
+ now. Beyond the matters which I have just referred to, which relate to Pakistan, these matters also of course are 
+
+ subject to separate complimentary statements by the Indonesian Government concerning the Government of Indonesia 
+
+ and I would not seek to cut across anything Pak Marty has to say either. We have discussed these matters in some 
+
+ detail before this press conference just now. However, the matters that I raised before are obviously a big concern to 
+
+ the Australian people and it follows as a matter of course that we follow these matters deeply at the level of the 
+
+ Australian Government and will continue to remain engaged with our friends both in Indonesia and in Islamabad.
+
+ Journalist: Could you please be more specific, we haven't heard any specifics on either agreements or commitments 
+
+ that have been made, or could have been made, at the forum? Are there any messages that you would like for the 
+
+ Page 4 of 5 Joint Press Conference, Bali Process Ministerial Conference, transcript, 30 March 201...
+
+ participant countries, particularly those from origin countries because what we have heard so far is mostly about are 
+
+ measures taken by the transit countries and the destination countries.
+
+ Minister Bowen: Well as I said before, this framework lays out the architecture for further agreements. It was a very 
+
+ clear view in the room that this was a significant step forward. There was discussion around the table, not only on 
+
+ transit countries but matters that could be taken into account for source countries and destination countries, and 
+
+ agreements between all three types of countries, the types of measures that I said before were anticipated in 
+
+ paragraphs 16 and 19 of the co-chair statement. So the process for today was to lay out the framework to enable those 
+
+ further agreements to be entered into under that framework and these are not agreements that would have been 
+
+ possible before this framework had been agreed to today by the ministers around the table.
+
+ Journalist: But what are the specific measures that should be taken by origin countries [inaudible]
+
+ Minister Bowen: In terms of origin countries, certainly matters that were discussed today by ministers went to 
+
+ education campaigns about the dangers and illegality of irregular movement, about the implications of irregular 
+
+ movement and certainly working together to deal with matters of economic migration. These are the sorts of things that 
+
+ ministers flagged in their discussions today and of course in relation to transit and destination countries, of course there 
+
+ is a range of matters that were anticipated by the co-chairs' statement including more robust return arrangements etc.
+
+ Journalist: [Question in Indonesian] 
+
+ Minister Natalegawa: [Response in Indonesian]
+
+ Minister Rudd: To add one point to what Pak Marty has said on the question of work against terrorist operations in the 
+
+ region. 
+
+ Australia remains fully engaged with our friends in Indonesia on the challenge of terrorism in this part of the world. 
+
+ The fact that these matters do not necessarily obtain daily media coverage does not mean that on a daily basis this 
+
+ cooperative activity is not underway in detail at an operational level involving our relevant agencies and has continued 
+
+ as such for many, many years and continues that way.  
+
+ Minister Natalegawa: Thanks very much. 
+
+ Media inquiries
+
+ Minister's office: (02) 6277 7500 â 
+
+ DFAT Media Liaison: (02) 6261 1555 â 
+
+ Page 5 of 5 Joint Press Conference, Bali Process Ministerial Conference, transcript, 30 March 201...
+

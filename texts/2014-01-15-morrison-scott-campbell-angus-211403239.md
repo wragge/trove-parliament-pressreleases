@@ -1,0 +1,404 @@
+---
+title: "Transcript of joint press conference: Canberra: 15 January 2014: Operation Sovereign Borders update"
+date: "2014-01-15"
+creators:
+  - "Morrison, Scott"
+  - "Campbell, Angus"
+source: "MINISTER FOR IMMIGRATION AND BORDER PROTECTION"
+subjects:
+trove_url: http://trove.nla.gov.au/version/211403239
+source_url: http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/3083340%22
+---
+
+ The Hon. Scott Morrison MP  Minister for Immigration and Border Protection 
+
+ 
+
+ Operation Sovereign Borders update  Wednesday, 15 January 2014 
+
+ Press Conference, Canberra 
+
+ Joint Press Conference with Scott Morrison - Minister for Immigration and  Border Protection and Lieutenant-General Angus Campbell - Department of  Defence. 
+
+ Scott Morrison: Welcome to this briefing on Operation Sovereign Borders. In  accordance with our usual practice, I'll make some opening statements that will be  followed by a statement by General Campbell. Then I'd ask you to address any  questions you have to General Campbell on matters. And then General Campbell, as  is the usual practice, will depart, and then feel free to ask me questions, which I'm  sure will be wide-ranging. 
+
+ After almost four months of operations and several weeks now of no illegal arrivals  by boat being transferred into immigration detention, Operations Sovereign Borders  has now moved beyond the establishment phase. As highlighted in previous  briefings, this establishment phase has been focused on ensuring the sustainable  and effective implementation of the Coalition's core policy measures on border  protection. 
+
+ We continue to deny permanent visas to all persons who had previously arrived  illegally in Australia by boat under the previous government. And this denies the  fulfilment of the promise made by people smugglers to those individuals, and we're  also ensuring that anyone who now turns up illegally by boat is subject to offshore  processing, no exceptions. 
+
+ This carries a powerful message back through the smuggling chain of the  government's strong resolve and consistency when it comes to protecting the  integrity of our borders, and our immigration program. This has been made possible  by changes we have made to onshore protection visas, and filling the $1.2 billion  funding black hole that Labor left offshore processing facilities under-funded, ill-equipped and under capacity.   
+
+ We have put in place the new 48-hour transfer policy that is ensuring that offshore  processing under the Coalition is a reality for those who seek to come here illegally  with no exceptions. Physical capacity has been doubled at our offshore processing  centres, to ensure there is now more than adequate capacity to cope with not only  any potential new arrivals, but also to deal with the back-log of almost 2000 people -  post-July 19 arrivals, currently on Christmas Island, who were never sent there by  the previous government because of the inadequacy of the facilities. They will all be 
+
+ transferred to Nauru and Manus Island for processing. They will not be coming to the  Australian mainland. There will be no exceptions. 
+
+ Similarly, no-one on Manus Island, as I said, will be coming to Australia, despite  what lies we know the people smugglers are spreading to the contrary to desperately  try and get people on boats. This has enabled the government also to announce the  closure of four mainland detention centres, which I announced yesterday, at a cost  saving of $88.8 million per year. These centres had a combined capacity of 1200  places, thereabouts. This represents more than 10 per cent of our mainland  detention network. There were 285 people currently accommodated in those centres,  which included 50 people, thereabouts, in family groups, who will be relocated to  other mainland centres as appropriate. The government intended - also intends to  announce further rationalisation of the onshore network over the course of the year.   
+
+ At offshore processing centres, new family facilities, equipment and medical services  has and is being established, including a shaded playground for children, air  conditioning for families with children in those facilities on Nauru. New general  surgical capabilities and psychiatric services, as well as upgrades to security  infrastructure, including CCTV, perimeter fencing and other measures recommended  by the force protection assessments undertaken by the Joint Agency Task Force last  year, which highlighted deficiencies in those areas.   
+
+ We are also salvaging resettlement arrangements with PNG that were little more  than a blank page under the previous government, and we've commenced  construction of post-assessment accommodation at both Nauru and Manus Island  for IMAs found to be refugees, ensuring that, post-assessment, no-one comes to  Australia.   
+
+ While we do not comment on the details of our maritime operations, Border  Protection Command is doing things differently to provide active deterrents to those  seeking to enter Australia illegally by boat. Such operations are undertaken to  protect the sovereignty of Australia's borders. Australia also respects Indonesia's  territorial sovereignty. Our operations reflect this commitment to the Government of  Indonesia, and will continue to do so, and any suggestion to the contrary is false.   
+
+ Our operations are undertaken consistent with Australian domestic law, and  international obligations. Also, all personnel involved in border protection operations  conduct their roles with the highest levels of professionalism, integrity and personal  courage in extremely trying and challenging circumstances. Lieutenant-General  Campbell, I'm sure, would have it no other way, and unsubstantiated claims to the  contrary are offensive to those who serve us so admirably.   
+
+ We have provided $67 million in the establishment phase in additional promised  funding to expand disruption and deterrence operations across the region, as part of  our regional deterrence framework in cooperation with our partners - not just  Indonesia, but in Sri Lanka and Malaysia as well. And we have been engaging with  our regional partners at a ministerial level, and operationally through the Prime  Minister's special envoy Major General retired Molan, not just Indonesia, but right up  the chain. For example, this past week our envoy has been in the Emirates, a key  transit point for those coming from the Middle East into our region for the purpose of 
+
+ getting on an illegal boat to Australia.   
+
+ Criminal people smugglers know that the Abbott Government means what it says on  border protection because we've been backing it up with our actions, and it is  working. The right policies are in the right hands, and they're beginning to get the  right results. As previously reported during the establishment phase, arrivals have  fallen by more than 80 per cent since Operation Sovereign Borders commenced. In  our last update we noted there had been no arrivals transferred to immigration  authorities for more than three weeks. This trend is supported by new information  from the UNHCR which shows that the marked slow-down in arrivals to Australia is  being replicated in Indonesia as well. The number of persons newly presenting to the  UNHCR in Jakarta for registration per month has fallen from 1608 persons in  September, to just 296 in December.   
+
+ We have always maintained that to make Australia's borders stronger, we need to  work together to make the region's borders stronger. And this has been a key focus  of our regional efforts. In this context, we welcome these new figures and will do  everything we can to ensure this trend continues to the benefit of both countries.  Australia already provides more than $40 million in funding to assist the International  Organization for Migration, provide accommodation and other support services to  more than 4000 people resident in Indonesia in partnership with Imigrasi.   
+
+ Australia stands ready to further assist Indonesia to manage this resident population  as required or requested. Australia will continue to provide re-settlement places at  the levels established by the previous government from Indonesia for persons found  to be refugees, and is open to assist with voluntary and involuntary returns to reduce  the transit population within Indonesia.   
+
+ As I have already flagged, Operation Sovereign Borders briefings will be provided as  required. Arrival rates have been significantly arrested in recent months, and the  establishment phase of the operation has been concluded. Weekly updates on  arrivals and transfers will continue to be provided by way of a statement. And, in the  ordinary course of my portfolio responsibilities, I will also be available to respond to  any media enquiries at conferences such as these, interviews, or through direct  contact with my office - as you all do, on a very regular basis, as is the case with  other government ministers.   
+
+ And with that statement I'll invite General Campbell to make some remarks and  some announcements. 
+
+ Angus Campell: Thanks Minister. Good morning.   
+
+ Operation Sovereign Borders is focused on stopping criminal people smugglers who  manipulate vulnerable men, women and children to risk their lives at sea. As we  begin the New Year, I would like to reiterate the approach to the release of public  information that has been adopted under Operation Sovereign Borders. This  approach has been developed so as to not give tactical advantage to people  smugglers, avoid providing official material that may be used to manipulate or  confuse potential illegal immigrants, protect our people in the conduct of their duties,  and acknowledge bilateral and regional sensitivities in the counter-people smuggling 
+
+ effort.   
+
+ The approach provides for the operational integrity necessary to underpin success.  No successful operation involving a complex multilateral, law enforcement,  diplomatic security effort gives real-time briefings on current operations. Rather, all  carefully manage information while conducting their operations lawfully and safely. I  appreciate this approach is not well received by some, and there are many different  audiences with different expectations of what information should be made available  to the public.   
+
+ My overriding priority in prosecuting my duties is the safety of all involved. That  includes potential illegal immigrants, and the crew of the vessels upon which they  arrive, and of course our Australian Customs and Border Protection and naval  personnel. This same spirit of concern for the wellbeing of people is, and continues  to be, clearly evident in the manner in which Customs and naval personnel go about  their duties at sea, as they have done to the highest of professional standards for  many years.   
+
+ More generally, over the last four months, I have been heartened by the  professionalism and dedication of our people across the very wide range of activities  being conducted under the banner of Operation Sovereign Borders. These activities  span source and transit countries, on-water operations and the offshore processing  centres. And they are intended - each activity, and in combination, to deter or  prevent people smugglers from plying their trade. I note media reporting on the  acquisition and potential use of lifeboats in Australian border security operations. I  can confirm that the Australian Customs and Border Protection Service has  purchased a number of large lifeboats. These lifeboats are an additional element in  that wide range of measures I have spoken of, designed to achieve the aims of  Operation Sovereign Borders, mindful always of the safety of the people involved  and our objective to stop maritime people smuggling. 
+
+ For all the reasons I have outlined, while confirming the acquisition, I'm not going to  provide information regarding the potential or actual employment of these lifeboats,  now or in the future. 
+
+ To date, this month, there have been no illegal maritime arrivals transferred to  Australian immigration authorities. While I'm encouraged by this, I am not  complacent. There is more to be done. People smugglers have not given up.  Australia is engaged in a contest of will and tactical action, one I am determined to  win.   
+
+ However, it will only be after the monsoon season ends, around late March, that I will  be able to be in a position to confidently offer an assessment of how the operation is  going. Historically, the rate of boat arrivals has risen after the monsoon to what could  be described as the business-as-usual level for people smugglers. My objective is no  boat arrivals. This is a demanding goal, but I would rather set a high standard and  strive toward it than to settle for some accommodation with criminals.   
+
+ Our continuing efforts to assess and adjust our procedures are of course closely  scrutinised by people smugglers in their attempts to anticipate and avoid our next 
+
+ steps. It is for this reason that until I can make a more confident judgment of  Operation Sovereign Borders' performance, I remain reluctant to release information  or further detail on past operational activities, lest it provide people smugglers with  trend analysis that might be used against us.   
+
+ Finally, I would like to reiterate two points. First, our activities and assets have never  and will never violate the sovereign territory of another country. And secondly, as  has been made clear at previous press conferences, I remain committed to advising  the Australian people immediately should a serious incident occur, such as loss of  life, at any time. 
+
+ Thank you. 
+
+ Scott Morrison: Questions for General Campbell? 
+
+ Journalist: General, are you indicating that when you have decided - or when you  are satisfied that Operation Sovereign Borders has been a success at some stage in  the future, you may be open to providing more detail on past operations, including  things like boat turn-backs? 
+
+ Angus Campell: When we get to that point, I am going to look to that question. I am  making no assumptions or comments on it at this stage. So let's get there first. 
+
+ Journalist: General, are you able to explain what you bought the lifeboats for? 
+
+ Angus Campell: No, I'm simply going to say that we've acquired them to be part of  the range of measures that we have at play. Clearly, a lifeboat - it's involved  potentially in those on-water activities that we don't discuss, and so I'm not going to  go further in that space. 
+
+ Journalist: Can you report on what the dollar figure was for those vessels? 
+
+ Angus Campell: I'll look into that and get back to you. 
+
+ Journalist: General, can you confirm if there is loss of life involved in an operation,  that the public will be told in real-time? Is that what you said? 
+
+ Angus Campell: Yes, as soon as we are aware, and we've got a confirmed  knowledge, we would make that… But we've always said that, and I am very  committed to that. 
+
+ I think there was another…? 
+
+ Journalist: General, the Minister in the last couple of days has declined to confirm  or comment on the thoughts of self-harm and hunger strikes on Christmas Island.  Was that an operational decision? Was that based on advice from you? 
+
+ Angus Campell: No, I believe that we are looking at the issue of not either  promoting the kind of protest activity that you could see being aggravated by further  reporting, or indeed encouraging the questions of further behaviours. So I'm not 
+
+ commenting to confirm or deny, I'm just that saying it's more a matter of the  management of those sorts of situations. 
+
+ Journalist: But do you provide advice about that? 
+
+ Angus Campell: I provide advice on the range of measures that are at play in  Operation Sovereign Borders, from source countries all the way through to offshore  processing centres. 
+
+ Journalist: Would providing basic details on those sorts of events in any way  encourage further instances of those sorts of events? Can you explain how? 
+
+ Angus Campell: Well, I think it may well indeed, yes. 
+
+ Journalist: Previous governments, including the Howard Government, have given  basic details about this. And no other previous government has reached that  conclusion. I put that to you. Explain why the situation is different under this  government. 
+
+ Angus Campell: I am looking to - certainly in the approach I'm offering - looking to  avoid circumstances which encourage any intensification, or anything that would  undermine our broad efforts. 
+
+ Journalist: And what advice are you basing that assumption on? 
+
+ Angus Campell: I take a range of advice from across the Commonwealth. 
+
+ Journalist: Including? 
+
+ Angus Campell: From across the Commonwealth. It's a task force with links to more  than - approximately 16 agencies of the Commonwealth. 
+
+ Journalist: General, is it fair to say, given your comments on waiting until March  before you make a better assessment of the success of the mission, that at least  some of the success of what's been going on is down, in your view, to seasonal  factors? 
+
+ Angus Campell: No, I'm just going to wait until March. I'm patient, determined, we're  going to do everything we possibly can to deter and ultimately to stop maritime  people smuggling. 
+
+ Journalist: General, before that time, will you be making yourself available for  questions as well? 
+
+ Angus Campell: Operation Sovereign Borders conferences will, I think as the  Minister has indicated, be occurring on an incidental basis along the way. 
+
+ Journalist: With your participation? 
+
+ Angus Campell: Yes. Yes, indeed. 
+
+ Journalist: General, one of the consequences of the secrecy under which all of this  is happening has been that allegations have been made that have been answered in  broad general terms, but not very specifically. Some of the people - some of the  asylum seekers claim that they were roughed up, or in a couple of cases, they claim  that their arms were held against hot engine parts by Australian personnel. Now,  there was a strong rebuttal of that from the chief of the Defence Force, but have  those allegations been specifically investigated? 
+
+ Angus Campell: They have been looked into, internal to our operational  arrangements. And I just ask that you might reflect on the question, what might be  the motivation behind those sorts of claims? Certainly we have nothing but the  highest regard for the performance of duties of our people in very difficult  circumstances.   
+
+ And I would note, more than 800 boat arrivals demonstrating the performance of that  duty. So some of those claims were quite outrageous. 
+
+ Journalist: General, did you request that Operation Sovereign Borders briefings no  longer be weekly, or did that initiative come from the government? 
+
+ Angus Campell: Look, the conduct of briefing media conferences is always going to  be a decision for the Minister, but I advise on Operation Sovereign Borders in all  aspects of Operation Sovereign Borders. 
+
+ Journalist: Can you explain how - what the processes are when allegations like the  ones that you've described as being outrageous are made, what processes you  follow? 
+
+ Angus Campell: That's right. There is an inside-military and Customs services  assessment processes to look at the question of what we were doing, what we knew,  who was engaged - so to essentially create a capacity to characterise whether  there's some substance to allegations. 
+
+ Journalist: But… 
+
+ Angus Campell: [Interrupts] And look, let me just add, that is a routine procedure  that would occur in all forms of - whether it's military, or Customs and Border  Protection activity. 
+
+ Journalist: In undertaking that internal investigation, aren't you, by extension,  confirming that the turn-back operation actually took place? 
+
+ Angus Campell: No, I'm acknowledging that the claim has been made, so it's our  responsibility to at least ask the question on face value, is there substance to that  claim? That's all I'm saying. 
+
+ Journalist: And General, have you got an answer to that yet? Are you clear in your  mind yet that all of those claims are outrageous, as you say? 
+
+ Angus Campell: I think that the points that have been made by the chief of the  Defence Force, by the head of the Customs service, by the Minister and myself are  very clear; we are very satisfied with professional conduct of our people in an on-water environment - in very demanding and difficult environments. 
+
+ Journalist: In all cases? 
+
+ Angus Campell: That's correct. 
+
+ Journalist: If you're acknowledging that those claims were made, axiomatically  there must have been a boat for them to be… 
+
+ Angus Campell: [Interrupts] That's not correct. I'm acknowledging the person has  used those words, I'm not saying whether or not what they have said is true, and  whether or not it actually refers to a boat. I'm making the point that comments have  been made into the media space, into the public space, we've become aware of  them and then looked to the question, is there any veracity to these claims? 
+
+ Scott Morrison: We might take one or two more, because I don't want to deny you  the opportunity to ask other questions. 
+
+ Journalist: Did the process involve talking at all to the [indistinct], and contacting the  people making the allegations? 
+
+ Angus Campell: In this particular case, no, it did not. 
+
+ Journalist: General, have any of the personnel under your command expressed any  concerns about the new operating environment they're working in, or the work that  they're doing? 
+
+ Angus Campell: No, they have not. 
+
+ Scott Morrison: Okay, last question. 
+
+ Journalist: Some time when you're ready to make an assessment, will you be  publicly releasing a report, and or recommendations to the Minister about the future  of the operation? 
+
+ Angus Campell: I think that what I've offered there is that it's not logical until, as I've  indicated, after the end of the monsoon, which ends in late March - it's not logical to  be able to make a confident judgment of what effect have we had on what would be  described by people smugglers as their usual business state. And it is at that point -  then I could make some more confident sense of where we've got to, and where we  need to go. 
+
+ And so I'll look to the form of that at that time. 
+
+ Scott Morrison: Thank you, General Campbell. 
+
+ Angus Campell: Thank you. 
+
+ Journalist: Minister, just on the weekly briefings, why were briefings not held on an  as-needs basis from day one? 
+
+ Scott Morrison: Well, we were in the establishment phase of the operation, and  there was a lot going on and there was a lot to announce each week. And if you go  back over the various statements that I made and General Campbell made over  those weeks, there was a lot of content - frankly, a lot of content that was never  reported. So there was much to say, and when we've got something to say we'll hold  press conferences. 
+
+ Journalist: I am interested in your justification for not confirming reports that  detainees are sewing their lips together. You said that it might encourage other  detainees to sew their lips together. My question is where does this logic take us? I  mean, should public authorities stop reporting on murders for fear that we might  encourage murderers? Should we stop reporting paedophilia for fear that we might  encourage paedophiles? At what point does the public have no right to know  because what you're saying is too bad to mention? 
+
+ Scott Morrison: I wouldn't agree with how you've characterised the behaviour and  the references that you've made. What is being suggested here is self-harm  behaviour. Now, you would know that more generally in the reporting of self-harm  issues, issues relating to suicide or things of that nature, that the media itself has  very strong rules and protocols about how it reports such behaviour on the basis that  it could lead or provide encouragement to others to undertake similar acts. 
+
+ Now, that is one of the overriding principles upon which we don't comment on that.  We don't want to encourage other people to do things to themselves, and we  certainly don't want to establish a precedent whereby, in undertaking such  behaviour, they think it will somehow give publicisation to their case, or indeed may  change the outcomes of their case. So I want to be really clear, when people engage  in protest activity, it does not change what will happen with their case or where they  will go. They will be transferred to Nauru and Manus Island. That's what's going to  happen. That's where their claims will be assessed, and when they're assessed, well  there will be options to accommodate what the outcome of that process is. 
+
+ Journalist: Minister, you made that point in terms of self-harm. Can you confirm  more broadly that there are protests going on at Christmas Island? 
+
+ Scott Morrison: Well, there are often incidents that take place across the detention  network, and they're typically quite peaceful. And when those incidents escalate into  something more significant, as there was in Manus Island, then we have provided  reports on those things, as we have at previous briefings, and on other occasions.  And so where that happens, we do that. 
+
+ This particular incident is under control, it's being managed by the service provide at  this time. I get regular updates on what is happening there. It is a difficult  environment when you've had people since July who have been at Christmas Island  now for some time. But I do stress that back then and earlier there was upwards of  3000 people at Christmas Island. That Christmas Island population now is down to  around 2100. It is well below the capacity levels of Christmas Island. And the 
+
+ changes that have been made at Christmas Island since the riots took place some  years ago have been significant. There have been major upgrades to security  infrastructure, and security procedures in those places to assist, manage and de-escalate events such as these. 
+
+ Journalist: Minister, you said border… 
+
+ Journalist: Minister, you said that you've salvaged the resettlement arrangements. 
+
+ Scott Morrison: I said we are salvaging. 
+
+ Journalist: You are salvaging, sorry, the resettlement arrangements. Can you  explain if someone's found to be a refugee on Manus Island and are housed in the  facilities that you're building, will they have freedom of movement around Papua New  Guinea? Will they have permanent residency? Will they be able to work? Will they  have family visiting rights? And similarly on Nauru, what will the situation be for  people found to be refugees? 
+
+ Scott Morrison: Well, the situation on Nauru and Manus are different, but in Manus  they would have freedom of movement around - at Manus. In terms of the other  matters that you've raised, they are still issues for the Government of Papua New  Guinea. They would have their rights and they would have all of those normal things  that you would expect. In terms of access to other programs and things of that  nature, that is a matter for the Papua New Guinean Government and there has been  no conclusion reached on those matters. 
+
+ Journalist: Freedom of movement on Manus [indistinct]. Can they leave the island?  Can they… 
+
+ Scott Morrison: Again, they are still matters for the Government of Papua New  Guinea and when we inherited this arrangement it was a blank sheet of paper and  there is still a large amount of work to be done and that's why it has been so  essential to get post-assessment accommodation in place so we could honour the  commitment of the policy that no-one comes to Australia. Now, the same is true in  the case of Nauru. 
+
+ Journalist: There was a break-out from a Northam detention centre the other day.  Have you - can you give us an update on whether all those people have been  recaptured? And also I think there's been three break outs from Northam since  August. Are you going to levy a fine against Serco for that? 
+
+ Scott Morrison: Well, there is the normal contractual penalties that apply in those  circumstances, but I am very concerned at what's happened at Yongah Hill and I  made comments about this before the election. I have just received a report from the  service provider on those incidents and I am concerned about the level of outside  assistance that has been provided to these break outs and I have been asking for  advice on how we can have better sanctions in place to prevent people seeking to do  this. Currently if you break out from detention obviously you go back into detention,  but if there is a need for greater sanctions to discourage this behaviour and looking 
+
+ at the internal procedures and levels of security at Yongah Hill, I want that evaluated  as well. 
+
+ I am not happy with what's happened at Yongah Hill. 
+
+ Journalist: Have you seen evidence that… 
+
+ Scott Morrison: My department and the service provider are pretty aware of my  very strong views on this. 
+
+ Journalist: Have you seen evidence that staff are helping detainees escape? 
+
+ Scott Morrison: No. 
+
+ Journalist: Minister, you said Border Protection Command is doing things  differently. Does that mean turn back and tow back and isn't it fair for us to assume  that it is unless you confirm it? 
+
+ Scott Morrison: Well, no, I'm not going to play that game. Simply not going to play  that game. You know what the government's position is on operational matters and  particularly on water matters and [indistinct]… 
+
+ Journalist: [Interrupts] Minister, are you worried that the retrospective nature of the  crackdown on family reunion visas may actually force people on to boats to be with  their families as legal avenues close? 
+
+ Scott Morrison: Well, there are limited places for family reunion under the  immigration program and it is the responsibility of the Minister to set the priorities for  the order of the queue in which applications are assessed. And I'm not sure what  those who have opposed this change are suggesting, but it is not my view that  someone who has arrived illegally by boat, whenever they have, should be  advantaged in the queue for family reunion against other people who have arrived  legally in Australia and have made applications for aged parent reunions or carers or  spouses or last remaining relatives. This is about priorities and it's about fairness.   
+
+ And so the avenue has not been closed for those legacy cases. It's just the order of  priority in which I've asked the department to provide places under the program I  have done on the basis, and consistent with the Coalition's long-held position, that if  you've come to Australia illegally by boat I am not going to advantage your claim  against someone else. I'm just not going to do it. 
+
+ Journalist: But why make it retrospective - but what's the element of retrospectivity  here? Why so far back? 
+
+ Scott Morrison: Because it goes to the matter of principle, and the matter of  principle is this; I'm going to run a fair immigration program and I'm not going to  advantage the claims of people who have come by that method over others who  have come the right way. They have an entitlement and a right to have their claims  advantaged. They're the ones who are also seeking family reunion in cases that go  the full breadth and gamut of family relationships and they even go to issues of 
+
+ carers as well. Now, I've set clear priorities. People are open to question those  priorities but I stand by them because I'm going to run a process that's fair. 
+
+ Journalist: If I could ask you about someone who is coming by plane. You're facing  a petition to cancel the visa for an artist formerly known as Snoop Dogg. Have you  looked at the claims being made against his character? 
+
+ Scott Morrison: Snoop Dogg has a visa. 
+
+ Journalist: Minister, how can Australians have confidence that, with the assurances  of the government, Defence and others, that our personnel have acted perfectly as  they should have abroad if, as the General says, no effort has been - or the General  says those making the accusations weren't even interviewed to get their view? 
+
+ Scott Morrison: Look, I have absolute faith in the integrity of our military personnel  and our commanders in the way these matters are assessed. They have a lot of  experience in dealing with claims and counterclaims and I am confident, absolutely  confident, that when claims are being made by people, often at the suggestion of  people smugglers themselves to try and undermine a government policy, a  government policy that is destroying their business, then they will say all sorts of  things. Now, I ask you, do you believe an Australian officer serving in Customs and  Border Protection or the Australian Defence Forces would have conducted  themselves in that way? I don't believe so and so I'm totally confident about the  processes that General Campbell has in place. 
+
+ Journalist: No, I believe it at all. 
+
+ Scott Morrison: Mr Morrison, you've promised that none of the 30 000 or more  asylum seekers already here will get a permanent protection visa. There are, as I  understand it, three High Court challenges against the regulations that you're trying  to use to implement that. The Senate maintains a hostile view at the moment and  we're not sure what their view will be after July. Are you confident that you can keep  that promise and if so, how? 
+
+ Scott Morrison: I don't speculate on High Court decisions. Plenty of Ministers have  done that in the past to their great peril. So I'll wait to see what the High Court does  and we will provide an appropriate response in terms of what the High Court  decides. 
+
+ Journalist: But are you sure you can keep - that you can meet your objective? 
+
+ Scott Morrison: I stand by my commitment. 
+
+ Journalist: Minister, the General said it won't be until March before we'll be able to  make a true assessment of how everything is going at the end of monsoon season.  So how much do you think of the decrease we've seen is down to seasonal factors? 
+
+ Scott Morrison: Well, I can only make the comparisons to the same seasons last  time. Now, we've had no arrivals now for coming on to four weeks. In that same  period last year there were over 450 arrivals and in the two previous years the 
+
+ arrivals were also in the hundreds. I can only make that comparison and let others  draw a conclusion. The comparison that we made in the reduction in arrivals are - I  think they're transparent. The number of people coming to Australia illegally by boat  is down and it's down significantly.   
+
+ Now, it's not at a level - at an average currently of around just under or around about  70 per week, even in the last four weeks with no arrivals, that I'm comfortable with.  That's not stopping the boats. There's more to be done and the government certainly  hasn't made any claims different to that. The General has been very clear today we  still have lot of work to do but the policies are making an impact. We know that's the  case, but the job's not done yet. 
+
+ Journalist: Mr Morrison, in response to my earlier question about people found to  be refugees on Manus or Nauru, you said a lot of those factors were matters for  those governments, but what information do you have or what assurances do you  have from those governments about how those people will be treated and what their  circumstances will be? Will they be able to stay [indistinct]… 
+
+ Scott Morrison: [Interrupts] Well, they're still matters of discussion. 
+
+ Journalist: Do you know if they'll be able to stay indefinitely, that they won't be sent  back? Do you know - do you have any assurances? 
+
+ Scott Morrison: The Papua New Guinean Government certainly would be  honouring its obligations under the Refugee Convention with regards to non  refoulement, that's part of the original memorandum of understanding and the  subsequent one, so that's not at issue. Your question went to what detailed matters  relating to their migration program and things of that nature. Now, those are matters  that are still in the process of discussion so I'm not able to shed any further light on it. 
+
+ Journalist: Minister, there were reports late last year, I think, that only one person  had actually been processed on Nauru. Is that still the case? Can you give us an  update on that? 
+
+ Scott Morrison: I'm happy to give those updates when further information is  available - the processing has recommenced on both Nauru and on Manus Island  and Australian officials were assisting with training and providing support for that  assessment process. That is underway and has been happening now for around  about three or four weeks. What had happened previously is the government was  putting people on and off Manus Island in particular and on Nauru for some period of  time. So as the processing would get underway, it would be interrupted as they  brought them back and there's been lot of disruptions in terms of the movement of  people and how the processes were conducted. 
+
+ So I thought the judgments being made by some international agencies against  Papua New Guinea and Nauru were incorrect. I mean, they were doing everything  they had been asked to do. It was the previous government that was chopping and  changing its policy. So processing is now back to business as usual, it's underway,  it's happening, and I'm happy to provide further updates when we have further  information. 
+
+ Journalist: Minister, would you like to see more journalists go to Nauru, which is  difficult given the visa fees that have been imposed? 
+
+ Scott Morrison: Well, that's a matter for Nauruan Government, what they charge. 
+
+ Journalist: [Indistinct] 
+
+ Scott Morrison: So I'm not going to lecture the Nauruan Government. They're a  sovereign country. We respect their sovereignty, they respect ours, and - so it's a  matter for them. 
+
+ Journalist: You have no view on it? 
+
+ Scott Morrison: Well, what view should I have? It's a matter for the Nauruan  Government. If journalists want to go to Nauru, they can go to Nauru. I - the  Australian Government would do nothing to prevent that. If they want to visit another  country… 
+
+ Journalist: Would you like to see Australian facilities on Nauru publicised? The  processing centre? 
+
+ Scott Morrison: Well, I hold, as did the previous government, a pretty strict policy  on media access to processing centres, but you'll note that we have a very liberal  policy when it comes to international organisations and other bodies who are able to  visit the centre, other members of parliament have all been through. They'll make  their findings, they'll make their claims, they'll issue their reports, and I've said where  they raise matters that are able to be substantiated I'm happy to address them.   
+
+ One of the things I've been concerned about recently is that when unsubstantiated  claims are made - and the most ridiculous most recently was in relation to female  sanitary products - I mean, Destroy the Joint. And for anyone to take that seriously,  when they used false reports of changes to policy regarding female sanitary products  as a way of engaging in juvenile protest, I mean, all that does is frankly undermine  the credibility when other claims are made.   
+
+ Now that was a ridiculous protest. The policy hasn't changed. It's been the same for  years. There's open access and continued access on demand, female welfare  officers, all of those sorts of things, and for people to be sucked in and to engage in  this juvenile protest I think was very unfortunate, it's very disappointing, and it's not  the sort of thing that I would have thought that people who should be more  responsible in the debate should be supporting in any way. 
+
+ Journalist: Does the Australian Government have - has the Australian Government  made any assurances or will you be providing any ongoing help or services to  refugees found - to asylum seekers found to be refugees and housed in these places  on Manus or Nauru? 
+
+ Scott Morrison: Well, again, Lenore, that's the detail that is still not finalised. And  what request is made by the Government of Papua New Guinea for that will be  considered, but those requests and those issues are still being worked through. As I 
+
+ warned at the time when the previous government announced this arrangement, it  was nothing more than almost a blank bit of paper, a couple of flags, and a signing  satchel. Now, that is not what stopped the boats. That is not what will stop the boats.  This government has been putting the substance into all of these measures. I mean,  we've had to fill a $1.2 billion black hole in offshore processing. They had not funded  it or equipped it to do the job that it needed to do. 
+
+ Journalist: But if processing is going on now in both places, people are going to  start coming out the other end of the system. 
+
+ Scott Morrison: Sure, and it's being worked through concurrently. It's being worked  through. 
+
+ Journalist: So when will you know? 
+
+ Scott Morrison: When it's resolved. [Indistinct] 
+
+ Journalist: Minister, is there a formalised consultation process with Indonesia on  Operation Sovereign Borders or is it an as-need, you know, sort of discussion  process? 
+
+ Scott Morrison: Well, there's been an ongoing dialogue operationally with Indonesia  ever since the government was elected, and more recently, of course, the Ministerial  level engagement has been conducted through the Foreign Ministers at the direction  of our leaders, particularly during what has been a challenging time for that  relationship over the last few weeks and months, and that's how that will continue.  That's where the Ministerial level of engagement will continue. But there has always  been - we said that we would continue to engage proactively with Indonesia across a  whole raft of matters and you can be assured that we do that, but obviously I'm not  going to violate the discretion of those exchanges. That would be contrary to the  purpose of engaging in them. 
+
+ Journalist: Minister, General Campbell indicated that if the event - in the event that  he is satisfied that Operation Sovereign Borders has been successful he might give -  he is open to providing detail about past operations. If that advice comes from  General Campbell, do you give an undertaking that you'll either… 
+
+ Scott Morrison: Way too many ifs in the question. Way too many ifs. We're not  going to get ahead of ourselves and I don't suggest anyone in this room should  either. We still have a job to do. The job is not done yet and there is still more work  to be undertaken. People are out there every single day on water, in our detention  centres, working up through the region. General Molan is meeting with other  countries' governments as we speak. I'll be going back into the region shortly. And  that's the job we're focused on. 
+
+ I know there's a lot of interest in these matters but frankly the matters that are  concerning General Campbell and I right now is getting the job done and stopping  the boats. 
+
+ Journalist: With respect, General Campbell… 
+
+ Scott Morrison: That's what I spend my days doing. 
+
+ Journalist: Turning back boats was an election promise when it was safe to do so.  Surely at some point you'd like to let the public know that you've ticked that election  box promise. 
+
+ Scott Morrison: Well, I'll give you the same response I just gave. 
+
+ Journalist: General Campbell said he would… 
+
+ Journalist: [Indistinct] people judge your progress if you're only giving briefings  when you want to and thus [indistinct]… 
+
+ Scott Morrison: [Interrupts] Every week people are getting an update on how many  people have arrived illegally by boat and transferred to immigration authorities, how  many people have been transferred to other centres and the population of those  centres and at Christmas Island. Every month there is an update on the full detention  network, including the number also of people - number of people in community  detention and the number of people on bridging visas, and so as that legacy case  load is resolved you'll see those numbers changed. I've already said we're closing  four centres. We intend to close more as that becomes available to us.   
+
+ We are releasing a large amount of information. I am standing before you here today  at this briefing, I think this is the 16th press conference I've held since I've become a  minister and, you know, that is a practice I'm happy to continue to be engaged in on  an as-needs basis, to make myself available whether it's at interviews or at press  conferences like this or responding to the multitude of requests that you all make on  a daily basis, and you will get responses too. 
+
+ Journalist: Under what circumstances will these briefings be held? Will it only be for  the most serious instances, such as loss of life? Or will it be a large boat arrival? 
+
+ Scott Morrison: As the General said, he's canvassed those matters, which has  been our long-standing practice, because we were always prepared to conduct  briefings outside the previous schedule in the establishment phase when incidents of  that nature happened so it could be done in a real time fashion, and I should stress  that when we have confirmed information available. Sometimes when incidents  happen there is all sorts of reports spraying all over the place and often those reports  initially are incorrect and you have to wait until you get the real information and you  can determine exactly what has happened. Now, when we're in that position then  obviously you could expect General Campbell and I to make statements and to give  briefings, in fact, as former Minister Clare used to do when those horrific incidences  took place. That same practice will be followed by this government.   
+
+ I've also said that when we have something to say, as General Campbell did today in  relation to the acquisition of life boats, then we will have something to say and we  will hold a press conference and you'll be able to ask questions. So judge us on the  press conferences that are held and the access that you have and I think - I mean,  I've noticed Senator Hanson-Young getting quite excited about this. I think it's time  for Senator Hanson-Young to come down off the grassy knoll with her conspiracy 
+
+ theories on all these sort of things. And she's not interested in policies that stopped  the boats. She has supported a government previously that let over 800 boats turn  up, 55,000 people and over 1100 people died. The policies that she promoted  delivered that outcome. 
+
+ Now, I am not going to support policies that deliver that type of an outcome. So this  government is pursuing the policies we took to the election. This government is  stopping the boats, but they're not yet stopped, and we will continue to provide  information as we are able to do, that is not going to jeopardise current or future  operations that we would be undertaking. We'll continue to work with our regional  partners as closely as we possibly can. And I outlined in my earlier statement, for  those of you who might not have picked it up, the sort of offers that we're continuing  to make to Indonesia to support them in the challenges that they have with their  resident population in Indonesia and that is a matter we will happily continue to  discuss with them as they wish. 
+
+ Journalist: [Indistinct] you believe that your policy is legal, policies put in place. Why  were changes made to the workplace safety laws protecting sailors that were  announced by General Hurley? 
+
+ Scott Morrison: Those - of the - I understand there will be further statements made  today on that but those changes do not change the legal obligations of the  government. The same obligations of the government remain in place. What it does  is protect the individual officers from any liability. The liability rests with the  government. So this is actually done to protect our people who are fulfilling lawful  instructions of the government, not in any way to reduce any protections available to  them. 
+
+ Journalist: But if the policy is lawful itself, why does it need to be changed to protect  servicemen and women from being…? 
+
+ Scott Morrison: It is transferring liability to the government so our liabilities rest with  the government. The government takes responsibility for the policies that it's  enacting and that's what these measures reflect. And we ask much of the people  who go out there and protect our borders and these measures are put in place to  support and protect them. 
+
+ Journalist: Have you issued any instructions to service providers about how to  implement the behavioural protocols and has anybody breached them or violated  them? 
+
+ Scott Morrison: No, I haven't got an update for you on that. 
+
+ Journalist: Mr Morrison, you said a moment ago that you were implementing  policies you took to the election. Both you and the now Prime Minister stated very  strongly that boats would not be towed back to Indonesia during the election  campaign. I think that was stated in a press conference in Jakarta. Now, there is  strong evidence that boats have actually been towed back, at the very least very  close to Indonesia, maybe only up to the territorial limits. Can you make - is that not  in contradiction to your policies? 
+
+ Scott Morrison: No, it's not and I'll tell you why, because the question  misunderstands the situation. Previously, before the election, what had been said  and the way tow back as a policy was explained and particularly to the Indonesian  Government and as it was characterised both in the media and by the previous  government is that boats would be towed back into Indonesian waters or towed back  to Indonesian ports. That was the relevance of the phrase tow back. Now, we've said  very plainly, and we said this before the election, that it has never been our policy to  violate Indonesia's territorial sovereignty. So I think there's been confusion on the  semantics by some on this and hopefully that clears it up. 
+
+ Last question. 
+
+ Journalist: [Indistinct] put to you, in regards to not doing the weekly briefings  anymore, people are tweeting to me, but… 
+
+ Scott Morrison: I'm sure they are. 
+
+ Journalist: …one person just says it's a disgrace they try to hide it from the public  with weak excuses. What would you say to that? 
+
+ Scott Morrison: Well, I'd say that I'm standing here and have been for at least  almost an hour answering your questions in a Operation Sovereign Borders briefing.  Every single week people are getting updates on the level of arrivals. It's interesting  that when we first started Operation Sovereign Borders the criticism was that we  should be holding more regular press conferences as every single boat arrived. Well,  now we're being criticised for not holding press conferences when boats don't arrive.  Now, we're providing weekly updates on what is the score card of the success of this  operation and that is how many people are transferred into immigration authorities  who have arrived illegally by boat. That is the benchmark of success or failure for  this policy and for this operation.   
+
+ Now, we will continue to make ourselves available as the need arises. We are past  the establishment phase of Operation Sovereign Borders. There has been an arrest  in the level of arrivals to Australia illegally be boat, but as the General rightly said,  the real test of this and the real understanding of the impact of this won't come until  post-monsoon. Weather conditions throughout the period we've operated and  particularly in December and January have been mixed, but have largely been good  for ventures and that continues while the monsoon is in place. There do remain  considerable periods where there is calm at sea and the ventures can be undertaken  and the smugglers haven't given up and this government will never give up. 
+
+ Thank you. 
+
+ 
+

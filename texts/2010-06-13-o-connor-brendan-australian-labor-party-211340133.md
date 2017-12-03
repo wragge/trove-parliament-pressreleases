@@ -1,0 +1,186 @@
+---
+title: "Keynote address to the Pearls in Policing Conference, Sydney."
+date: "2010-06-13"
+creators:
+  - "O'Connor, Brendan"
+  - "Australian Labor Party"
+source: "MINISTER FOR HOME AFFAIRS"
+subjects:
+  - "Regional security"
+  - "Law enforcement"
+  - "Rule of law"
+  - "Conferences"
+  - "East Timor"
+  - "UN peacekeeping operations"
+  - "Afghanistan"
+  - "Policing"
+  - "Australian Federal Police"
+  - "Developing countries"
+trove_url: http://trove.nla.gov.au/version/211340133
+source_url: http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/7W2X6%22
+---
+
+  
+
+ Keynote address to the Pearls in Policing  Conference  Sydney 
+
+ 13 June 2010 
+
+ [CHECK AGAINST DELIVERY] 
+
+ Good afternoon. Thank you for the invitation to speak at this very important gathering. 
+
+ Welcome to all of you and may I also say to our international guests, welcome to Australia. 
+
+ I too would like to acknowledge and recognise the Cadigal people as the traditional owners of  this land and pay my respects to their elders, past and present. 
+
+ May I acknowledge the Commissioner of the Australian Federal Police, Tony Negus, the  President of the Curatorium, Chief Constable of the Netherlands Police Agency, Ruud Bik,  and the many Senior Police representatives and other distinguished guests that have travelled  from across the globe to be here. 
+
+ We are privileged to have you here and proud that Australia has been chosen to host this  forum, which as you know, is being held for the first time outside of the Netherlands. 
+
+ It is a rare privilege, and a pleasure, to be able to address you here in this intimate setting as  professional colleagues and partners of Australia in law enforcement. 
+
+ As the third President of the United States, Thomas Jefferson said: 
+
+ “When a man assumes a public trust, he should consider himself a public property” 
+
+ I am realistic and accept the public exposure and the responsibility of public trust that comes  with political life, as it is a career I have chosen. But Jefferson’s comments can also be  applied to those who may not set out to choose life in the public eye, such as Commissioners  of Police. By virtue of your roles, you too are in positions of public trust, and you are  responsible for others who must also be accountable to the community they serve.  
+
+ The actions of any police officer of any rank, whether on or off duty, are open to public  scrutiny. Any actions which do not hold up to such examination will diminish the amount of  trust a police force has, and lower the regard in which individual officers are held by their  community. 
+
+ And it is true for both politicians and police that without the public’s trust we have no  legitimacy in the eyes of our community. 
+
+ Which brings me to the topic I have been asked to speak about today: ‘Peace, Police and  Justice - navigating the way ahead.’ 
+
+ This subject goes to the heart of the notion of police legitimacy, and the importance of this  legitimacy in maintaining the community’s faith in the legal system as an arbiter of justice. 
+
+ In modern democratic societies where rule-of-law principles are entrenched, we are taken by  surprise if something happens that appears to contradict the path of justice. 
+
+ Law enforcement agencies are generally well accepted by the majority of citizens, who  believe that police have a role to protect and serve the community through investigating and  combating criminal activity. 
+
+ This is not always true in developing nations. It is perhaps helpful, then, to take a step back  from where we are to look at why policing is an essential element of any stable, secure and  peaceful society. 
+
+ One way to do this is through examining the reasons behind our involvement in peacekeeping  and capacity building missions in developing countries. Australia is but one of many nations  promoting peace and stability across the globe, and I acknowledge the efforts of your  governments in working towards this endeavour. 
+
+ Over the past few decades it has become increasingly clear that we need to do more than  simply enforce peace when conflict arises. We also need to provide assistance that helps to  stop conflict arising and prevents it from recurring. 
+
+ Peace, or at the very least the absence of conflict, allows citizens to establish homes and  families without risk. It enables nations to grow and prosper. It protects basic human rights. 
+
+ At a government level, we have a responsibility to maintain peace through the rule-of-law.  Increasingly, we are calling on policing agencies to provide some of the resources we need to  promote and protect peace in fragile communities across the world. 
+
+ Australia’s perspective and approach to these missions is governed by three core principles: 
+
+ â¢ First, that peace and security is necessary for human development.  â¢ Second, that human development is secured by the rule-of-law.  â¢ And finally, that the sustainable and effective maintenance of the rule-of-law is  underpinned by democratic civilian policing. 
+
+ The role of police in stabilisation, humanitarian assistance and international development  operations has increased steadily. The trend has been so marked that the United Nations’  Brahimi Report published at the turn of the century paid special attention to the role of  civilian police. 
+
+ In 2007 the number of police serving with the United Nations exceeded nine thousand for the  first time. There are now more than 11 thousand police deployed to UN missions. So it is  clear there has been a shift in what the international community is trying to achieve when it  agrees to enter into a peacekeeping agreement. 
+
+ Solutions are now focusing on the nexus between the rule-of-law and development, rather  than concentrating exclusively on halting violence and enforcing calm. One of the reasons for 
+
+ this thinking is the recognition of the enormity of the problems faced by strife-torn  communities. 
+
+ The introduction of a civil policing presence, as opposed to a military force, can offer major  benefits to ensuring ongoing peace. But the difficulties thrown up by these operations are  complex. 
+
+ As an example I will speak briefly about the experience of the Australian Federal Police in  providing support to the people of Timor-Leste. A little more than a decade after shocking  violence tore families and communities apart, significant inroads have been made in restoring  peace, and importantly the rule-of-law. 
+
+ One aspect of this has been the Timor-Leste Police Development Program, which has been  jointly designed by the Australian Federal Police and the Policia Nacional de Timor-Leste.  Through educational opportunities in Australia and Timor-Leste, members of the local police  force have been given exposure to enhanced leadership and executive training. The program  also provides training in a range of other fields, including community policing. 
+
+ From a policing perspective, a large part of the program’s success lies in getting police to  speak to people while they patrol, proactively approaching their duties to identify potential  problems and generally in building the community’s trust in its police force. 
+
+ From a community perspective, the program is succeeding if police are seen as approachable,  trustworthy and able to successfully resolve the problems that are put before them. 
+
+ The police of Timor-Leste are now gaining legitimacy in a way that has not been seen before.  When the community trusts its police force and respects the work it does, the police have a  much better chance of combating criminality and promoting stability and security across the  community. 
+
+ A nation’s ability to uphold the rule-of-law has a direct impact on peace and stability, which  in turn has a positive influence on the ability of law enforcement to minimise criminal  behaviour and other activities which undermine a government’s legitimacy. 
+
+ As Lord Ashdown has said: 
+
+ “We lovingly forget that item number one is always the rule of law. It is not elections, I’m  afraid. If you have elections before you establish the rule of law then all you do is elect the  criminals who ran the war. What you create is not a democracy, but a criminally captured  state.” 
+
+ And an essential ingredient needed to uphold the rule-of-law is the presence of an effective  civilian police force. 
+
+ This leads me to pose the question - what is an effective civilian police force? In such august  company, it is perhaps an impertinent question. 
+
+ The AFP has done an enormous amount over the past decade to ensure its activities are  relevant and meeting the community’s expectation to combat criminality and protect  Australian interests. 
+
+ Through a process of ongoing strategic planning, the AFP has been able to identify the  activities it needs to be undertaking, new areas of operation it should be targeting and the  business activities that will help it to maintain relevance in the law enforcement sector. 
+
+ Its performance is dictated by a framework that incorporates both individual and  organisational activities, and the entire planning process is subject to rigorous and regular  review. 
+
+ From the AFP’s perspective, the organisation is able to use the strategic plan to identify areas  of funding shortfall, and argue a strong case to shift extra resources where they are needed. 
+
+ One recent example is a decision by the AFP to realign its strategic priorities to more  accurately reflect the needs of government in relation to national security priorities. 
+
+ This has resulted in the creation of two new portfolio areas. The ‘Serious and Organised  Crime’ and ‘Crime Operations’ portfolios have been established to prevent and investigate  organised and serious criminal activity, and threats affecting Australia’s interests. These  include transnational crimes like drug trafficking and people smuggling, terrorism-related  offences, and financial and corporate crimes like money laundering and identity theft. 
+
+ The revised structure puts the AFP at the front of Australia’s fight against serious and  organised criminal activity, and the teams are responsible for developing and implementing  response plans under the Government’s overarching strategic framework for this aspect of  national security. 
+
+ To be effective in this role, the AFP will continue to work in close collaboration with  domestic and international law enforcement agencies, and other key government partners. 
+
+ Conferences such as Pearls in Policing provide one avenue for the AFP to raise issues and  discuss possible solutions with agencies who may be dealing with the same problem but from  diverse perspectives. 
+
+ For example, people smuggling is an insidious crime that affects source, destination and  transit countries differently. 
+
+ The latest figures from the United Nations suggest there are around 42 million displaced  people worldwide, and more than 15 million of them are refugees. 
+
+ Many displaced persons try to change their lives and circumstances by any means possible,  leaving them vulnerable to the activities of those who seek to profit from human misery and  desperation. The majority of people smuggling ventures are arranged by criminal syndicates  attracted by the large profits. Their actions pose a serious challenge to the interests of nations  affected by their activities, and to regional security. 
+
+ For law enforcement agencies, the issues are complex and often multi-jurisdictional. The  evidence trail may cross several international borders, and victims may be living in a  different country to the people smugglers. The same set of circumstances can lead to  investigations or prosecutions in more than one country. 
+
+ To be effective in combating this criminal trade, police agencies must be able to draw on  their collective experience and expertise through an ongoing process of cooperation and  collaboration. And this is true of other crime types, as well. 
+
+ So effective policing can be facilitated through ongoing dialogue and cooperation among  agencies, and I commend this conference as providing one avenue for such activities to take  place. 
+
+ The provision of justice, however, requires more than effective policing. 
+
+ Justice is the sum total of all activities undertaken by the legal and law enforcement system  including: 
+
+ â¢ the investigation and prosecution of a crime  â¢ the ability of judge and jury to assess the whether a defendant is guilty  â¢ the fairness of any sentence which is handed down  â¢ the conditions under which the sentence is served  â¢ and whether the outcome helps to deter other criminals from engaging in similar 
+
+ activities 
+
+ From a policing perspective, the provision of justice is mainly concerned with ensuring that  investigations are carried out fairly, and that all avenues of inquiry are followed diligently.  Investigators must also ensure that the brief of evidence they provide to prosecutors contains  all the information needed to pursue the case successfully. 
+
+ It is important that police activities can be reviewed by independent authorities. Transparency  and accountability are vital elements, helping to ensure the police retain trust in the  community.  
+
+ I am proud to say that in Australia, we have a history of police accountability across all  jurisdictions. And whatever our political leanings, the nation’s political leaders are committed  to upholding and promoting the rule-of-law. The very nature of our system allows us to  experience ongoing peace, effective policing and adherence to the principles of natural 
+
+ justice. 
+
+ But it is never wise to be complacent, and in navigating the way ahead we must remain  vigilant to the undercurrents and tides that could push us onto rocky shoals. 
+
+ The increasing complexity and interconnected nature of today’s globalised environment  means that more than ever before, policing agencies are becoming involved in a range of  multi-agency and multi-jurisdictional operations. And partnerships of one kind or another are  fundamental to ensuring the success of such endeavours. 
+
+ I have spoken about the risk serious and organised crime poses to national security. Australia  is not alone in this regard, and we are committed to working with our international partners to  combat and dismantle transnational criminal syndicates. In purely financial terms, the impact  of organised criminal activity is enormous. 
+
+ The Australian Crime Commission estimates that it costs our community around 15 billion  dollars a year. Internationally, the cost is far higher. A recent survey of five thousand  companies in 40 countries by Price Waterhouse Coopers found that, on average, each  company lost more than three million US dollars over a two year period because of organised  criminal activity. 
+
+ But the impact of such criminal networks is just one factor affecting stability and security in  our region and further afield. 
+
+ Terrorism is another significant issue we face, and we cannot let down our guard. It is  important to remain focused on identifying, disrupting and prosecuting those who seek to  promote terror and undermine our society. 
+
+ We need to consider how law enforcement can fit into a broader, whole-of-government  strategy that aims to build resilience to extremist ideologies across the community, as well as  investigate and prosecute those who engage in terrorism-related activities. On a global scale,  we need to look at how such actions fit into the international effort to build security and  establish peace in nations such as Afghanistan. 
+
+ A month ago I visited Tarin Kowt in Oruzgan Province with Commissioner Negus to see the  good work the Australian Federal Police are doing training the Afghan National Police. 
+
+ We cannot become complacent about what we are doing. It is important that as police leaders  you use forums such as this to discuss what is working in your own jurisdictions, and what  isn’t. 
+
+ The damage caused both immediately as the result of a terrorist attack, and in its aftermath,  means we must ensure counter-terrorism remains a key priority of law enforcement. 
+
+ The challenge, both overseas and here in Australia, lies in harnessing the separate roles and  legislative mandates of the agencies involved. We need to work together to achieve agreed  outcomes in a way that ensures national, or perhaps more accurately global,  security  activities are carried out in a complementary, rather than competitive way.  
+
+ And we cannot predict the future. Who knows what is lying around the corner? 
+
+ The journey will continue to challenge us, and we will need to continue to work together to  address the issues that arise. I know that over the next few days you will apply yourselves to  finding effective ways of doing this, and I wish you luck in your endeavours. 
+
+ I hope that you will both enjoy Australia and benefit from these proceedings, away from the  direct and intense pressures of your day to day work. 
+
+ The Commissioner of N.S.W Police Andrew Scipione, will, I have no doubt, provide sound  local advice to our international guests. Sydney is indeed one of the world’s most beautiful,  welcoming modern cities. If you have time, my home city of Melbourne will also welcome 
+
+ you. 
+
+ Thank you again for inviting me to speak today and I trust you will enjoy these proceedings.  
+
+  
+

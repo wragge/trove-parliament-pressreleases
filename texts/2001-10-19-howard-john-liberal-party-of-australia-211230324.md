@@ -1,0 +1,290 @@
+---
+title: "Sheraton Hotel, Brisbane: transcript of doorstop interview: boat people; APEC; deployment terms and conditions."
+date: "2001-10-19"
+creators:
+  - "Howard, John"
+  - "Liberal Party of Australia"
+source: "PRIME MINISTER"
+subjects:
+trove_url: http://trove.nla.gov.au/version/211230324
+source_url: http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/3I756%22
+---
+
+ www.pm.gov.au
+
+ 19 October 2001
+
+ TRANSCRIPT OF THE PRIME MINISTER THE HON JOHN HOWARD MP DOORSTOP INTERVIEW, SHERATON HOTEL, BRISBANE
+
+ Subjects: Boat people; APEC; deployment terms and conditions
+
+ E&EO…………………………………………………………………………………………...
+
+ PRIME MINISTER:
+
+ Well ladies and gentlemen I’ve called this news conference to indicate that for the first time in relation to illegal immigration a vessel which had come to Australia, the one that went to Ashmore Reef last week, has been escorted back into Indonesian waters.  The motor vessel Harapanindah which arrived off Ashmore Reef about eight or nine days ago was intercepted by HMAS Warramunga and in accordance with legal advice given to us by the crown law authorities and based in part on the new legislation we indicated by a third party note to the Indonesian Government last Monday the vessels coming into Australian waters would henceforth be returned to the place from which they’d come.
+
+ This particular vessel was escorted out of Australian waters after humanitarian aid was given, in particular medical attention provided for a women who’d given birth to a child just after the vessel had entered the Ashmore Reef area and the vessel was escorted back to Indonesian waters and I was informed that earlier today the party that had gone on board  the vessel in accordance with the advice left the vessel and returned to HMAS Waramanga and the motor vessel Harapanindah then began steaming towards and in fact entered Indonesian territorial waters.  I’m further informed that yesterday afternoon the Indonesian Government was informed with a further third party note that the vessel had been escorted back to a position adjacent to Indonesian territorial waters and the intention was that the vessel should return to Indonesia and it is our understanding that it has.  And the HMAS Waramanga is now returning to Australia.
+
+ This is the first time that this has happened.  The vessel of course may reprovision and refuel and might attempt a return, we don’t know that.  But it is significant that for the first time a vessel has been returned and has gone back into Indonesian territorial waters.  And that of
+
+ PRIME MINISTER
+
+ 2
+
+ itself is significant.  I’m also told that when the crew on the Indonesian, it was an Indonesian flagged and crewed vessel. I’m told that when the crew was informed of the new penalties for people smuggling they indicated a desire to return to Indonesia. We continue to work cooperatively with the Indonesian Government to tackle the shared problem of people smuggling. Let me emphasise that these actions have been carried out in accordance with the legal advice that we received. It was based on the provisions of the new legislation and also on informing the Indonesian Government of our intention to take legitimate steps to return vessels from whence they came, which we did, on the 8th of October.  We not only related it to this particular vessel but we also made it clear that we intended to direct vessels seeking to bring unauthorised arrivals to Australia to return from whence they came.  And as I said the Indonesian Government was informed yesterday afternoon at about 5:30 our time that the vessel would be in the vicinity of Indonesian territorial waters early this morning.  We have not received any response from the Indonesian Government in relation to it. But the fact is that earlier today the vessel did re-enter Indonesian territorial waters. I repeat of course that we provided humanitarian assistance including very specific medical treatment of the lady who’d had the child and her condition was completely stabilised before the return journey commenced.
+
+ JOURNALIST:
+
+ [inaudible]
+
+ PRIME MINISTER:
+
+ My advice is that it is in Indonesian waters.
+
+ JOURNALIST:
+
+ How exactly was the boat turned around….?
+
+ PRIME MINISTER:
+
+ Well there was a boarding party. A group of defence personnel want on board.
+
+ JOURNALIST:
+
+ Can you say how many or….?
+
+ PRIME MINISTER:
+
+ A number, sufficient number. And for a period of time the women and children were taken on board HMAS Waramanga and then they were transferred back to the vessel in the later stages.
+
+ JOURNALIST:
+
+ Were there interpreters on board?
+
+ PRIME MINISTER:
+
+ 3
+
+ Well I don’t know whether there were interpreters on board or not. But I mean the fact is people went on board, there was no undue or illegal behaviour. It was all carried out in accordance with very careful legal advice we’d been given.  There was no violence. We gave humanitarian assistance, we gave medical assistance, we particularly looked after the person who’d had the child.  At one stage there was a suggestion, and I was contacted about this, that there might be a need for a medical evacuation and I said that if that were necessary, if her health was seriously in danger or was threatened, she should be medically evacuated if necessary to the Australian mainland to ensure that she received proper medical advice.  But there was a boarding party and I think at the very early stages the vessel may have been towed but then when the motor was running properly it was escorted back.  The boarding party stayed.  When they got closer to the territorial waters they got back onto the Waramanga.  The Indonesians were notified and my advice is that the vessel has gone back into Indonesian waters.  So it represents for the first time, on my advice, it represents a successful return of a vessel.
+
+ Now I acknowledge that the vessel might reprovision and refuel and might try to come again. And other vessels may well continue to try and come. But it is important that for the first time using the new legislation and based on the advice we have this successful return has been completed.
+
+ JOURNALIST:
+
+ Did they say they were seeking refugee status and what countries were they from?
+
+ PRIME MINISTER:
+
+ I don’t know whether they made any comments about seeking refugee status but whether they did or they didn’t would not on my legal advice would not on my legal advice be of any account because what we did was completely in accordance with the law as it now stands. The environs of Ashmore Reef have been excised from the migration zone so whether they asked for refugee status or not would not have been of any account.  Where were they from? It is my understanding that they were from the Middle East but I’m not absolutely certain of that and I’m not sure that that has been established beyond all doubt.
+
+ JOURNALIST:
+
+ [inaudible] informed by a third party.  Can you tell us what that is and why…..?
+
+ PRIME MINISTER:
+
+ Well a third party note is one of these diplomatic expressions which couched in the language for which diplomacy is renowned, making it plain that something’s going to happen. Instead of saying, you know, you say it is intended that….
+
+ JOURNALIST:
+
+ Not through a separate party or….?
+
+ PRIME MINISTER:
+
+ 4
+
+ No. It refers to the nature of the language, not the method of delivery.
+
+ JOURNALIST:
+
+ Mr Howard, did the Navy personnel assist with the birth of the baby and regardless of that if the baby was born in the environs of Ashmore Reef does that mean the child has a different right to claim asylum than adults coming because they’re born in the environs?
+
+ PRIME MINISTER:
+
+ I understand that the child was born before the vessel entered our territorial waters.  And it is not my understanding or belief that any Australian personnel assisted with the birth.
+
+ JOURNALIST:
+
+ Mr Howard, did the Australian Navy vessel at any point enter Indonesian waters?  And what does this act today mean for Australia’s ongoing relationship with Indonesia?
+
+ PRIME MINISTER:
+
+ Well the answer to the first question is no.  The answer to the second question is that I would not expect, and I certainly would hope that it would not cause any difficulty.  Our desire to have these vessels returned to Indonesia is well known to the Indonesian Government. We have behaved at all times in accordance with international law.  The Foreign Minister, when he was in Shanghai a few days ago, when he saw the Indonesian Foreign Minister referred to the third party note that had been delivered on Monday.  This has been done very carefully in accordance with International law as advised to us.  We have no desire to give any offence to the Indonesian Government or the Indonesian people.  We understand that Indonesia has many domestic challenges of her own and we are sympathetic to the Indonesian Government in relation to those domestic challenges. But as you know we are willing to take all appropriate legal steps, always behaving humanely, to stem the flow of illegal asylum seekers who wish to enter Australia and come into Australian waters.  And having passed the legislation and having reassessed the legal position the Government formed the view that this was an appropriate course of action.  I should also let you know that about the same time yesterday afternoon as the Indonesian Government was notified, given the second third party note, Mr Ruddock informed Mr Sciacca, the Shadow Minister for Immigration, of what the Government had done and what its intentions were.
+
+ JOURNALIST:
+
+ Indonesia still appears to be turning a blind eye to people smuggling.  Do you have any information of any slowing of departures….?
+
+ PRIME MINISTER:
+
+ Well Nigel it is mixed.  There is evidence that the flow into the pipeline has slowed down but there is still a backlog in Indonesia and the possibility of a number of boats endeavouring to come to Australia to beat the onset of the wet season can’t be discounted.
+
+ 5
+
+ JOURNALIST:
+
+ Do you believe the message is getting through?
+
+ PRIME MINISTER:
+
+ It’s too early to be certain about that but we do know that what we have done has had an effect on the number entering the pipeline.  So there are grounds for optimism that over time the message will get through but there are a lot of people who as it were are banked up in Indonesia, having previously gone into the pipeline.  Now I would hope that what we continue to do will demonstrate our determination to act always in accordance with the law in a humane fashion to stop the flow.
+
+ JOURNALIST:
+
+ Mr Howard aside from your understanding that the Indonesian boat (inaudible), what could the direct response (inaudible).
+
+ PRIME MINISTER:
+
+ We haven’t had any, we would not expect it.  I mean if you just think about it for a moment it was an Indonesian flag vessel and it’s got an Indonesian crew, there is no overt executive act required on the part of the Indonesia Government for it to re-enter Indonesian waters, it’s just gone back to Indonesia.
+
+ JOURNALIST:
+
+ (inaudible).
+
+ PRIME MINISTER:
+
+ No they did not.
+
+ JOURNALIST:
+
+ What about the Indonesian Foreign Minister though…
+
+ PRIME MINISTER:
+
+ He noted what Mr Downer had said but did not respond, did not comment on it.  That is my advice.
+
+ JOURNALIST:
+
+ … assistance to Indonesia, Australia’s assistance to Indonesia in various ways on maritime surveillance and patrol, has Indonesian maritime surveillance contributed in anyway to the apprehension of any vessels or the detection of any vessel in the last say three weeks?
+
+ PRIME MINISTER:
+
+ 6
+
+ Well I think you are aware that we continue to talk about this issue with Indonesia, we seek a cooperative understanding with Indonesia and we’ll continue to seek that.
+
+ JOURNALIST:
+
+ … child is born in international waters, what sort of obligation is Indonesia or Australia under in relation to ...
+
+ PRIME MINISTER:
+
+ I think the child’s status would be governed by the status of that child’s parents would it?  I mean I don’t claim to be an expert in private international law but reaching back into the recesses of my understanding when I was at the law school, I think the child’s status would be that of the parents if the child was born on high seas.  Now I might be wrong, I’ll go and check it but that would be my understanding, if the child is born on the high seas of Indonesian parents I imagine the child would inherit Indonesian nationality.  Now I can’ think it would be otherwise, it would not make sense for it to be otherwise.
+
+ JOURNALIST:
+
+ (inaudible) bilateral meeting with Megawati at the weekend APEC meeting?
+
+ PRIME MINISTER:
+
+ Mr Henderson and then Mrs Murphy…
+
+ JOURNALIST:
+
+ Do you expect the refugees, particularly refugees fleeing from Afghanistan be on the agenda, and if so with what aim in mind, any resolution, any decisions that might affect Australia.
+
+ PRIME MINISTER:
+
+ I would expect the issue to be discussed even if tangentially but certainly discussed if we’re talking about the whole situation because there is a potential pressure on Pakistan from refugees out of Afghanistan.  Do I think there’ll any decision taken about it?  I would not expect a decision in quite the way you put it to be taken but I’m sure the matter will come up at some stage.  And my view is that the nations of the world can best respond to the problem by trying to help Pakistan because she was put under enormous pressure now. Now the President of Indonesia will be at the meeting, I expect to have an opportunity in some way to talk to her and I will certainly discuss this issue.
+
+ JOURNALIST:
+
+ Mr Howard given that military commitment to the fight against terrorism, how much longer can Australia keep monitoring our waters and being involved in exercises like this?
+
+ PRIME MINISTER:
+
+ 7
+
+ I think Australia can go on doing this for quite some time and that is the advice I’ve received from the defence forces. It is in our view part of the role of the defence force to deal with people who would seek to come to this country illegally.  Particularly when you’re dealing with boats that do not respond readily to requests to stop and to refrain from entering our territorial waters which are issued by customs officers and others. I mean we’re not dealing with a situation where people automatically respond to requests. I’ve never quite understood this latent view of some that this has nothing whatever to do with the Navy of the defence forces, after all you do have a situation where people are endeavouring to break the law of this country, now I would like to think it could be dealt with entirely by Customs, the alternative offered by the Labor Party of a coastguard would of course end up partly gutting an important part of the Royal Australian Navy and it’s become very apparent over recent days that there’s a lot of unease in those circles about that.
+
+ JOURNALIST:
+
+ Have you heard reports that the Deputy Prime Minister’s wife received a package containing white powder and that another package containing white powder was found in a seat pocket on a Virgin Blue aircraft?
+
+ PRIME MINISTER:
+
+ I have received those reports and I’m very distressed to hear about them.  As I am about this activity directed towards any Australian citizen. It doesn’t what status the person has in this country, that kind of behaviour is equally offensive and unacceptable and equally criminal and punishable by 10 years in jail. I understand in relation to Julia Anderson the relevant authorities have gone there, people are involved, there could be decontainment involved, I’m not at this stage aware of the outcome of tests, I hope of course very sincerely in relation to her and indeed in relation to anybody else that the substance was not lethal but nonetheless if the people who’d done it are caught they can go to jail for 10 years.
+
+ JOURNALIST:
+
+ Have you received any packages?
+
+ PRIME MINISTER:
+
+ I am not aware of any being sent to any of my offices.  Or anybody associated with me.  But you know I don’t know that it really helps to personalise things too much.  I mean it doesn’t matter who it is, whether it’s me, somebody else, you, I mean it is equally offensive, it is no more acceptable for it to go to a person who’s unknown. I mean it’s completely unacceptable no matters who’s involved.  Everybody’s life and peace of mind is of equal importance in these situations.
+
+ JOURNALIST:
+
+ What was in yesterday’s packages? Do you know yet? The ones that were delivered to Parliament House.
+
+ PRIME MINISTER:
+
+ 8
+
+ Well I understand a harmless substance.  What it was I don’t know but it wasn’t lethal.
+
+ JOURNALIST:
+
+ Apart from the Chinese leader which one will talk to you about (inaudible).
+
+ PRIME MINISTER:
+
+ Well I expect to be seeing the Prime Minister of Thailand, the Prime Minister of Papua New Guinea, the Japanese Prime Minister through his embassy did raise the possibility of a meeting, we’re to-ing and fro-ing on dates. These meetings are of such a character that you get lots of opportunities anyway to talk to people and in a way bilateral discussions while they can be useful on particular issues outside the remit of the meeting are of lesser importance than at other gatherings.
+
+ JOURNALIST:
+
+ Mr Howard just back to the boat people, you said the Warramunga is on its way back…
+
+ PRIME MINISTER:
+
+ Yes it is.
+
+ JOURNALIST:
+
+ The Adelaide’s going to escort the Kanimbla (inaudible) other frigates towards the US action…
+
+ PRIME MINISTER:
+
+ There are two frigates dedicated to the US action.  Not two others.
+
+ JOURNALIST:
+
+ (inaudible) clears up on the north west (inaudible) boat people.
+
+ PRIME MINISTER:
+
+ Well the original surveillance aircraft and I think we were going to have a number of naval vessels and there’s one less, we indicated that after the first three week period and that’s what remains as I understand it.  Now the only other thing that I wanted to mention to you is that I am releasing this afternoon a statement which sets out in full the conditions of service for Australian defence personnel who will be serving in the coalition against terrorism, they do involve a situation where personnel deployed on the operation will receive as is appropriate, tax free salary,  those involved in the ground operations during the course of those operations will receive a tax free deployment allowance of $200 a day.  Those deployed at sea or at an airbase outside the land area of operations will receive tax free salary and a tax free deployment allowance of $125 a day.  This includes HMAS ANZAC, currently involved in Gulf operations and her intended replacement which is HMAS Sydney.  Other conditions of service will include compensation and rehabilitation coverage under the veterans entitlement
+
+ 9
+
+ act and the military compensation act, additional war service lever of 1.5 days per month of service on deployment, additional home assistance and pre-embarkation leave or reunion where practicable before deployment.  This package is very comprehensive but that is as it should be, it’s also important that every step be taken to look after the families of serving personnel and the defence community organisation and the Department of Veterans’ affairs will work closer to provide the highest level of support to the families of those personnel deployed to support the International coalition.  We are releasing a formal statement on this that makes all those details very clear.
+
+ JOURNALIST:
+
+ How does the rate of that family (inaudible) compare with the payment for people…
+
+ PRIME MINISTER:
+
+ It is higher.
+
+ JOURNALIST:
+
+ How do you work that out?
+
+ PRIME MINISTER:
+
+ Well as time goes by you do have slighter higher, I mean the conditions in East Timor were higher than any previously.  You have to make decisions, I mean I had a discussion with CDF and the Defence Minister about it, thankfully we are not regularly involved in military repayments therefore there’s not sort of a standing body of precedent, you had to make an individual assessment. It seemed to me and to the defence minister and to the CDF that it was appropriate given the particular character of this operation that that remuneration be given. That’s not of course to downgrade any other involvement but it is a potentially very dangerous operation and it is the least that a grateful country can do.
+
+ JOURNALIST:
+
+ How much did they get in Timor Mr Howard?
+
+ PRIME MINISTER:
+
+ I’d have to check that but it was not quite as much as that, but it was significantly more generous than had previously been the case.
+
+ Thank you.
+
+ [ends]
+

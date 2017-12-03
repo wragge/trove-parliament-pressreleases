@@ -1,0 +1,67 @@
+---
+title: "New senior appointments."
+date: "2005-07-10"
+creators:
+  - "Howard, John"
+  - "Liberal Party of Australia"
+source: "PRIME MINISTER"
+subjects:
+  - "Dept of Immigration and Multicultural and Indigenous Affairs"
+  - "Appointments"
+  - "WARNER, Nick"
+  - "METCALFE, Andrew"
+  - "FARMER, Bill"
+  - "O'SULLIVAN, Paul, (ASIO)"
+  - "Ministerial staff"
+  - "Australian Security Intelligence Organisation"
+  - "Department heads"
+  - "Indonesia"
+  - "Australian ambassadors"
+trove_url: http://trove.nla.gov.au/version/242219588
+source_url: http://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;query=Id%3A%22media/pressrel/M8MG6%22
+---
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ PRIME MINISTER 
+
+ 
+
+ NEW SENIOR APPOINTMENTS   
+
+ I am announcing some significant changes in the leadership of the Australian Public  Service.   
+
+ Mr Bill Farmer AO has been Secretary of the Department of Immigration and  Multicultural and Indigenous Affairs (or its predecessor) since 2001.  Much has been  achieved in that time.  DIMIA now manages a highly successful and rapidly growing  skilled migration programme and a large refugee and humanitarian intake, supported  by world-class settlement services for new arrivals.  However Mr Farmer has  indicated to me that, as he has already stated publicly, the Department would benefit  from vigorous organisational review and major cultural change. It is his considered  view that this process will be best led by a new Secretary.   
+
+ Mr Farmer had a long and distinguished career in foreign affairs before taking up his  present position, including as our High Commissioner in Kuala Lumpur and Port  Moresby.  His contribution was recognised earlier this year when he was made an  Officer in the Order of Australia.  I am delighted that he has agreed to continue to  serve the Australian government.  I propose to recommend to the Governor-General  that Mr Farmer take up the position of our Ambassador in Jakarta later this year,  subject to the normal approval processes.  Mr Farmer will leave DIMIA on 11 July  2005 and return to the Department of Foreign Affairs and Trade.   
+
+ Mr Andrew Metcalfe will become the new Secretary of the Department of  Immigration and Multicultural and Indigenous Affairs.  Mr Metcalfe has been a  Deputy Secretary in the Department of the Prime Minister and Cabinet since August  2002.  He has taken particular responsibility for international and national security  policy and for government and parliamentary matters.  He has performed his role with  distinction.  Prior to that he has had a long career in Immigration, including as Deputy  State Director, Regional Migration Director (Hong Kong), Assistant Secretary, First  Assistant Secretary and Deputy Secretary.     
+
+ Mr Metcalfe has strong leadership capability.  Importantly he possesses good skills in  organisational management combined with a clear and direct communications style.   His considerable experience in migration and border protection, combined with his  more recent role in oversighting international issues, defence and counter-terrorism  policy, will be of considerable value.  He will have my full support in driving the  changes that are needed in DIMIA. 
+
+ 
+
+ I will also be recommending to the Governor-General that Mr Paul O’Sullivan be  appointed as the Director-General of ASIO.  Mr O’Sullivan is presently the Senior  Adviser (International) in my office.  He was a Deputy Secretary in the Department of  Foreign Affairs and Trade and possesses a very strong diplomatic background.  He  has been Australia’s Deputy Chief of Mission in Washington and our Ambassador in  Bonn and Berlin.  Mr O’Sullivan will provide strong but considered leadership to  ASIO as it continues to expand its vital role in maintaining Australia’s security. In  accordance with the relevant legislation I have consulted the Leader of the Opposition  on this appointment. 
+
+ 
+
+ Mr Nick Warner, a Deputy Secretary in DFAT, will become my new Senior Adviser  (International).  Mr Warner has held a number of key positions in the Department,  including as High Commissioner in Port Moresby.  He served as the Special  Coordinator to the Solomon Islands, oversighting the Regional Assistance Mission to  the Solomon Islands (RAMSI).  Most recently he headed up the Emergency Response 
+
+ Team (ERT) in Baghdad which worked so hard to secure the release of Mr Douglas  Wood.  I look forward to him joining my office.   
+
+ 
+
+ 10 July 2005 
+
