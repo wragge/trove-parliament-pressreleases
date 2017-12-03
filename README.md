@@ -90,6 +90,8 @@ harvest.harvest()
 
 ### Using your own search query
 
+By default `harvest()` will launch the
+
 ### Saving as CSV
 
 Once your harvest is complete, you can save the results to a CSV file.
