@@ -8,4 +8,4 @@ python-slugify==1.2.4
 requests==2.18.4
 Unidecode==0.4.21
 urllib3==1.22
-wheel==0.24.0
+wheel==0.38.1
